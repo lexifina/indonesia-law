@@ -1,0 +1,2 @@
+# Pasal 150
+Ketentuan mengenai pemutusan hubungan kerja dalam undang-undang ini meliputi pemutusan hubungan kerja yang terjadi di badan usaha yang berbadan hukum atau tidak, milik orang perseorangan, milik persekutuan atau milik badan hukum, baik milik swasta maupun milik negara, maupun usaha-usaha sosial dan usaha-usaha lain yang mempunyai pengurus dan mempekerjakan orang lain dengan membayar upah atau imbalan dalam bentuk lain.

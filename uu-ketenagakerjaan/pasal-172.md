@@ -1,0 +1,2 @@
+# Pasal 172
+Pekerja/buruh yang mengalami sakit berkepanjangan, mengalami cacat akibat kecelakaan kerja dan tidak dapat melakukan pekerjaannya setelah melampaui batas 12 (dua belas) bulan dapat mengajukan pemutusan hubungan kerja dan diberikan uang pesangon 2 (dua) kali ketentuan Pasal 156 ayat (2), uang penghargaan masa kerja 2 (dua) kali ketentuan Pasal 156 ayat (3), dan uang pengganti hak 1 (satu) kali ketentuan Pasal 156 ayat (4).

@@ -1,0 +1,4 @@
+# Pasal 161
+(1) Dalam hal pekerja/buruh melakukan pelanggaran ketentuan yang diatur dalam perjanjian kerja, peraturan perusahaan atau perjanjian kerja bersama, pengusaha dapat melakukan pemutusan hubungan kerja, setelah kepada pekerja/buruh yang bersangkutan diberikan surat peringatan pertama, kedua, dan ketiga secara berturut-turut.
+(2) Surat peringatan sebagaimana dimaksud dalam ayat (1) masing-masing berlaku untuk paling lama 6 (enam) bulan, kecuali ditetapkan lain dalam perjanjian kerja, peraturan perusahaan atau perjanjian kerja bersama.
+(3) Pekerja/buruh yang mengalami pemutusan hubungan kerja dengan alasan sebagaimana dimaksud dalam ayat (1) memperoleh uang pesangon sebesar 1 (satu) kali ketentuan Pasal 156 ayat (2), uang penghargaan masa kerja sebesar 1 (satu) kali ketentuan Pasal 156 ayat (3) dan uang penggantian hak sesuai ketentuan Pasal 156 ayat (4).

@@ -1,0 +1,16 @@
+# Pasal 88
+(1) Setiap pekerja/buruh berhak memperoleh penghasilan yang memenuhi penghidupan yang layak bagi kemanusiaan.
+(2) Untuk mewujudkan penghasilan yang memenuhi penghidupan yang layak bagi kemanusiaan sebagaimana dimaksud dalam ayat (1), pemerintah menetapkan kebijakan pengupahan yang melindungi pekerja/buruh.
+(3) Kebijakan pengupahan yang melindungi pekerja/buruh sebagaimana dimaksud dalam ayat (2) meliputi:
+a. upah minimum;
+b. upah kerja lembur;
+c. upah tidak masuk kerja karena berhalangan;
+d. upah tidak masuk kerja karena melakukan kegiatan lain di luar pekerjaannya;
+e. upah karena menjalankan hak waktu istirahat kerjanya;
+f. bentuk dan cara pembayaran upah;
+g. denda dan potongan upah;
+h. hal-hal yang dapat diperhitungkan dengan upah;
+i. struktur dan skala pengupahan yang proporsional;
+j. upah untuk pembayaran pesangon; dan
+k. upah untuk perhitungan pajak penghasilan.
+(4) Pemerintah menetapkan upah minimum sebagaimana dimaksud dalam ayat (3) huruf a berdasarkan kebutuhan hidup layak dan dengan mem-perhatikan produktivitas dan pertumbuhan ekonomi.

@@ -1,0 +1,4 @@
+# Pasal 102
+(1) Dalam melaksanakan hubungan industrial, pemerintah mempunyai fungsi menetapkan kebijakan, memberikan pelayanan, melaksanakan pengawasan, dan melakukan penindakan terhadap pelanggaran peraturan perundang-undangan ketenagakerjaan.
+(2) Dalam melaksanakan hubungan industrial, pekerja/buruh dan serikat pekerja/serikat buruhnya mempunyai fungsi menjalankan pekerjaan sesuai dengan kewajibannya, menjaga ketertiban demi kelangsungan produksi, menyalurkan aspirasi secara demokratis, mengembangkan keterampilan, dan keahliannya serta ikut memajukan perusahaan dan memperjuangkan kesejahteraan anggota beserta keluarganya.
+(3) Dalam melaksanakan hubungan industrial, pengusaha dan organisasi pengusahanya mempunyai fungsi menciptakan kemitraan, mengembang-kan usaha, memperluas lapangan kerja, dan memberikan kesejahteraan pekerja/buruh secara terbuka, demokratis, dan berkeadilan.

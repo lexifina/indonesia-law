@@ -1,0 +1,2 @@
+# Pasal 171
+Pekerja/buruh yang mengalami pemutusan hubungan kerja tanpa penetapan lembaga penyelesaian perselisihan hubungan industrial yang berwenang sebagaimana dimaksud dalam Pasal 158 ayat (1), Pasal 160 ayat (3), dan Pasal 162, dan pekerja/buruh yang bersangkutan tidak dapat menerima pemutusan hubungan kerja tersebut, maka pekerja/buruh dapat mengajukan gugatan ke lembaga penyelesaian perselisihan hubungan industrial dalam waktu paling lama 1 (satu) tahun sejak tanggal dilakukan pemutusan hubungan kerjanya.

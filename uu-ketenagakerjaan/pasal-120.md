@@ -1,0 +1,4 @@
+# Pasal 120
+(1) Dalam hal di satu perusahaan terdapat lebih dari 1 (satu) serikat pekerja/serikat buruh maka yang berhak mewakili pekerja/buruh melakukan perundingan dengan pengusaha yang jumlah keanggotaannya lebih dari 50% (lima puluh perseratus) dari seluruh jumlah pekerja/buruh di perusahaan tersebut.
+(2) Dalam hal ketentuan sebagaimana dimaksud dalam ayat (1) tidak terpenuhi, maka serikat pekerja/serikat buruh dapat melakukan koalisi sehingga tercapai jumlah lebih dari 50% (lima puluh perseratus) dari seluruh jumlah pekerja/buruh di perusahaan tersebut untuk mewakili dalam perundingan dengan pengusaha.
+(3) Dalam hal ketentuan sebagaimana dimaksud dalam ayat (1) atau ayat (2) tidak terpenuhi, maka para seri-kat pekerja/serikat buruh membentuk tim perunding yang keanggotaannya ditentukan secara proporsional berdasarkan jumlah anggota masing-masing serikat pekerja/serikat buruh.

@@ -1,0 +1,2 @@
+# Pasal 62
+Apabila salah satu pihak mengakhiri hubungan kerja sebelum berakhirnya jangka waktu yang ditetapkan dalam perjanjian kerja waktu tertentu, atau berakhirnya hubungan kerja bukan karena ketentuan sebagaimana dimaksud dalam Pasal 61 ayat (1), pihak yang mengakhiri hubungan kerja diwajibkan membayar ganti rugi kepada pihak lainnya sebesar upah pekerja/buruh sampai batas waktu berakhirnya jangka waktu perjanjian kerja.

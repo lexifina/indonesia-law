@@ -1,0 +1,5 @@
+# Pasal 112
+(1) Pengesahan peraturan perusahaan oleh Menteri atau pejabat yang ditunjuk sebagaimana dimaksud dalam Pasal 108 ayat (1) harus sudah diberikan dalam waktu paling lama 30 (tiga puluh) hari kerja sejak naskah peraturan perusahaan diterima.
+(2) Apabila peraturan perusahaan telah sesuai sebagaimana ketentuan dalam Pasal 111 ayat (1) dan ayat (2), maka dalam waktu 30 (tiga puluh) hari kerja sebagaimana dimaksud pada ayat (1) sudah terlampaui dan peraturan perusahaan belum disahkan oleh Menteri atau pejabat yang ditunjuk, maka peraturan perusahaan dianggap telah mendapatkan pengesahan.
+(3) Dalam hal peraturan perusahaan belum memenuhi persyaratan sebagaimana dimaksud dalam Pasal 111 ayat (1) dan ayat (2) Menteri atau pejabat yang ditunjuk harus memberitahukan secara tertulis kepada pengusaha mengenai perbaikan peraturan perusahaan.
+(4) Dalam waktu paling lama 14 (empat belas) hari kerja sejak tanggal pemberitahuan diterima oleh pengusaha sebagaimana dimaksud dalam ayat (3), pengusaha wajib menyampaikan kembali peraturan perusahaan yang telah diperbaiki kepada Menteri atau pejabat yang ditunjuk.
