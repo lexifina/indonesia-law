@@ -1,0 +1,2 @@
+(1) Tiap-tiap warga negara berhak dan wajib ikut serta dalam usaha pembelaan negara.
+(2) Syarat-syarat tentang pembelaan diatur dengan undang-undang.

@@ -1,0 +1,3 @@
+(1) Presiden dibantu oleh menteri-menteri negara.
+(2) Menteri-menteri itu diangkat dan diperhentikan oleh Presiden.
+(3) Menteri-menteri itu memimpin departemen pemerintahan.

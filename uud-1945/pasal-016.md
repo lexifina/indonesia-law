@@ -1,0 +1,2 @@
+(1) Susunan Dewan Pertimbangan Agung ditetapkan dengan undang-undang.
+(2) Dewan ini berkewajiban memberi jawab atas pertanyaan Presiden dan berhak memajukan usul kepada pemerintah.
