@@ -1,0 +1,2 @@
+# Pasal 121
+Penyidik atas kekuatan sumpah jabatannya segera membuat berita acara yang diberi tanggal dan memuat tindak pidana yang dipersangkakan, dengan menyebut waktu, tempat dan keadaan pada waktu tindak pidana dilakukan, nama dan tempat tinggal dari tersangka dan atau saksi, keterangan mereka, catatan mengenai. akta dan atau benda serta segala sesuatu yang dianggap perlu untuk kepentingan penyelesaian perkara.

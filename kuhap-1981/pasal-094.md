@@ -1,0 +1,6 @@
+# Pasal 94
+(1) Dalam hal perkara pidana sebagaimana dimaksud dalam Pasal 89 ayat (1) diadili oleh pengadilan dalam lingkungan peradilan umum atau lingkungan peradilan militer, yang mengadili perkara tersebut adalah majelis hakim yang terdiri dari sekurang-kurangnya tiga orang hakim.
+(2) Dalam hal pengadilan dalam lingkungan peradilan umum yang mengadili perkara pidana sebagaimana dimaksud dalam Pasal 89 ayat (1), majelis hakim terdiri dari hakim ketua dari lingkungan peradilan umum dan hakim anggota masing-masing ditetapkan dari peradilan umum dan peradilan militer secara berimbang.
+(3) Dalam hal pengadilan dalam lingkungan peradilan militer yang mengadili perkara pidana tersebut pada Pasal 89 ayat (1), majelis hakim terdiri dari, hakim ketua dari lingkungan peradilan militer dan hakim anggota secara berimbang dari masing-masing lingkungan peradilan militer dan dari peradilan umum yang diberi pangkat militer tituler.
+(4) Ketentuan tersebut pada ayat (2) dan ayat (3) berlaku juga bagi pengadilan tingkat banding.
+(5) Menteri Kehakiman dan Menteri Pertahanan dan Keamanan secara timbal balik mengusulkan pengangkatan hakim anggota sebagaimana dimaksud dalam ayat (2), ayat (3) dan ayat (4) dan hakim perwira sebagaimana dimaksud dalam ayat (3) dan ayat (4).

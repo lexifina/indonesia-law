@@ -1,0 +1,5 @@
+# Pasal 174
+(1) Apabila keterangan saksi di sidang disangka palsu, hakim ketua sidang memperingatkan dengan sungguh-sungguh kepadanya supaya memberikan keterangan yang sebenarnya dan mengemukakan ancaman pidana yang dapat dikenakan kepadanya apabila ia tetap memberikan keterangan palsu.
+(2) Apabila saksi tetap pada keterangannya itu, hakim ketua sidang karena jabatannya atau atas permintaan penuntut umum'atau terdakwa dapat memberi perintah supaya saksi itu ditahan untuk selanjutnya dituntut perkara dengan dakwaan sumpah palsu.
+(3) Dalam hal yang demikian oleh panitera segera dibuat berita acara pememeriksaan sidang yang memuat keterangan saksi dengan menyebutkan alasan persangkaan, bahwa keterangan saksi itu adalah palsu dan berita acara tersebut ditandatangani oleh hakim ketua sidang serta panitera dan segera diserahkan kapada penuntut umum untuk diselesaikan menurut ketentuan undang-undang ini.
+(4) Jika perlu hakim ketua sidang menangguhkan sidang dalam perkara semula sampai pemeriksaan perkara pidana terhadap saksi itu selesai.

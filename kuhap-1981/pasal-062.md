@@ -1,0 +1,4 @@
+# Pasal 62
+(1) Tersangka atau terdakwa berhak mengirim surat kepada penasihat hukumnya, dan menerima surat dari penasihat hukumnya dan sanak keluarga setiap kali yang diperlukan olehnya, untuk keperluan itu bagi tersangka atau terdakwa disediakan alat tulis menulis.
+(2) Surat menyurat antara tersangka atau terdakwa dengan penasihat hukumnya atau sanak keluarganya tidak diperiksa oleh penyidik, penuntut umum, hakim atau pejabat rumah tahanan negara kecuali jika terdapat cukup alasan untuk diduga bahwa surat menyurat itu disalahgunakan.
+(3) Dalam hal surat untuk tersangka atau tedakwa itu ditilik atau diperiksa oleh penyidik, penuntut umum, hakim atau pejabat rumah tahanan negara, hal itu diberitahukan kepada tersangka atau terdakwa dan surat tersebut dikirim kembali kepada pengirimnya setelah dibubuhi cap yang berbunyi "telah ditilik".

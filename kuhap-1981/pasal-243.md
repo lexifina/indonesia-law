@@ -1,0 +1,6 @@
+# Pasal 243
+(1) Salinan surat putusan pengadilan tinggi beserta berkas perkara dalam waktu tujuh hari setelah putusan tersebut dijatuhkan, dikirim kepada pengadilan negeri yang memutus pada tingkat pertama.
+(2) Isi surat putusan-setelah dicatat dalam buku register segera diberitahukan kepada terdakwa dan penuntut umum oleh panitera pengadilan negeri dan selanjutnya pemberitahuan tersebut dicatat dalam' salinan surat putusan pengadilan tinggi.
+(3) Ketentuan mengenai putusan pengadilan negeri sebagaimana dimaksud Pasal 226 berlaku juga bagi putusan pengadilan tinggi.
+(4) Dalam hal terdakwa bertempat tinggal di luar daerah hukum pengadilan negeri tersebut panitera minta bantuan kepada panitera pengadilan negeri yang dalam daerah hukumnya terdakwa bertempat tinggal untuk memberitahukan isi surat putusan itu kepadanya.
+(5) Dalam hal terdakwa tidak diketahui tempat tinggalnya atau bertempat tinggal di luar negeri, maka isi surat putusan sebagaimana dimaksud dalam ayat (2) disampaikan melalui kepala desa atau pejabat atau melalui perwakilan Republik Indonesia, di mana terdakwa biasa berdiam dan apabila masih belum juga berhasil disampaikan, terdakwa dipanggil dua kali berturut-turut melaluil dua buah surat kabar yang terbit dalam daerah hukum pengadilan negeri itu sendiri atau daerah yang berdekatan dengan daerah itu.

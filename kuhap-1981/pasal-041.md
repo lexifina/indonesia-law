@@ -1,0 +1,2 @@
+# Pasal 41
+Dalam hal tertangkap tangan penyidik berwenang menyita paket atau surat atau benda yang pengangkutannya atau pengirimannya dilakukan oleh kantor pos dan telekomunikasi, jawatan atau perusahaan komunikasi atau pengangkutan, sepanjang paket, surat atau benda tersebut diperuntukkan bagi tersangka atau yang berasal daripadanya dan untuk itu kepada tersangka dan atau kepada pejabat kantor pos dan telekomunikasi, jawatan atau perusahaan komunikasi atau pengangkutan yang bersangkutan, harus diberikan surat tanda penerimaan.

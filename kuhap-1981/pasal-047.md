@@ -1,0 +1,4 @@
+# Pasal 47
+(1) Penyidik berhak membuka, memeriksa dan menyita surat lain yang dikirim melalui kantor pos dan. telekemunikasi, jawatan atau perusahaan komunikasi atau pengangkutan jika benda tersebut dicurigai dengan alasan yang kuat mempunyai hubungan dengan perkara pidana yang sedang diperiksa, dengan izin khusus yang diberikan untuk itu dari ketua pengadilan negeri.
+(2) Untuk kepentingan tersebut penyidik dapat meminta kepada kepala kantor pos dan telekomunikasi, kepala jawatan atau perusahaan komunikasi atau pengangkutan lain untuk menyerahkan kepadanya surat yang dimaksud dan untuk itu harus diberikan surat tanda penerimaan.
+(3) Hal sebagaimana dimaksud dalam ayat (1) dan ayat (2) pasal ini, dapat dilakukan pada semua tingkat pemeriksaan dalam proses peradilan menurut ketentuan yang diatur dalam ayat tersebut.

@@ -1,0 +1,7 @@
+# Pasal 132
+(1) Dalam hal diterima pengaduan bahwa sesuatu surat atau tulisan palsu atau dipalsukan atau diduga palsu oleh penyidik, maka untuk kepentingan penyidikan, oleh penyidik dapat dimintakan keterangan mengenai hal itu dari orang ahli.
+(2) Dalam hal timbul dugaan kuat bahwa ada surat palsu atau yang dipalsukan, penyidik dengan surat izin ketua pengadilan negeri setempat dapat datang atau dapat minta kepada pejabat penyimpan umum yang wajib dipenuhi, supaya ia mengirimkan surat asli yang disimpannya itu kepadanya untuk dipergunakan sebagai bahan perbandingan.
+(3) Dalam hal suatu surat yang dipandang perlu untuk pemeriksaan, menjadi bagian serta tidak dapat dipisahkan dari daftar sebagaimana dimaksud dalam Pasal 131, penyidik dapat minta supaya daftar itu seluruhnya selama waktu yang ditentukan dalam surat permintaan dikirimkan kepadanya untuk diperiksa, dengan menyerahkan tanda penerimaan.
+(4) Dalam hal surat sebagaimana dimaksud dalam ayat (2) tidak menjadi bagian dari suatu daftar, penyimpan membuat salinan sebagai penggantinya sampai surat yang asli diterima kembali yang di bagian bawah dari salinan itu penyimpan mencatat apa sebab salinan itu dibuat.
+(5) Dalam hal surat atau daftar itu tidak dikirimkan dalam waktu yang ditentukan dalam surat permintaan, tanpa alasan yang sah, penyidik berwenang mengambilnya.
+(6) Semua pengeluaran untuk penyelesaian hal tersebut dalam pasal ini dibebankan pada dan sebagai biaya perkara.
