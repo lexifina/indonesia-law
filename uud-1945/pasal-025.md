@@ -1,1 +1,1 @@
-Syarat-syarat untuk menjadi dan diperhentikan sebagai hakim ditetapkan dengan undang-undang.
+Syarat-syarat untuk menjadi dan untuk diperhentikan sebagai hakim ditetapkan dengan undang-undang. BAB IXA WILAYAH NEGARA Pasal 25A Negara Kesatuan Republik Indonesia adalah sebuah negara kepulauan yang berciri Nusantara dengan wilayah yang batas-batas dan hak-haknya ditetapkan dengan undang-undang. WARGA NEGARA DAN PENDUDUK

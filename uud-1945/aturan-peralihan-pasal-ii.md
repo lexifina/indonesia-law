@@ -1,1 +1,1 @@
-Segala badan negara dan peraturan yang ada masih langsung berlaku, selama belum diadakan yang baru menurut Undang-Undang Dasar ini.
+Semua lembaga negara yang ada masih tetap berfungsi sepanjang untuk melaksanakan ketentuan Undang-Undang Dasar dan belum diadakan yang baru menurut Undang-Undang Dasar ini.

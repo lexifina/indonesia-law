@@ -1,0 +1,1 @@
+Majelis Permusyawaratan Rakyat ditugasi untuk melakukan peninjauan terhadap materi dan status hukum Ketetapan Majelis Permusyawaratan Rakyat Sementara dan Ketetapan Majelis Permusyawaratan Rakyat untuk diambil putusan pada Sidang Majelis Permusyawaratan Rakyat tahun 2003.

@@ -1,5 +1,3 @@
-(1) Anggaran pendapatan dan belanja ditetapkan tiap-tiap tahun dengan undang-undang. Apabila Dewan Perwakilan Rakyat tidak menyetujui anggaran yang diusulkan pemerintah, maka pemerintah menjalankan anggaran tahun yang lalu.
-(2) Segala pajak untuk keperluan negara berdasarkan undang-undang.
-(3) Macam dan harga mata uang ditetapkan dengan undang-undang.
-(4) Hal keuangan negara selanjutnya diatur dengan undang-undang.
-(5) Untuk memeriksa tanggung jawab tentang keuangan negara diadakan suatu Badan Pemeriksa Keuangan, yang peraturannya ditetapkan dengan undang-undang. Hasil pemeriksaan itu diberitahukan kepada Dewan Perwakilan Rakyat.
+(1) Anggaran pendapatan dan belanja negara sebagai wujud dari pengelolaan keuangan negara ditetapkan setiap tahun dengan undang-undang dan dilaksanakan secara terbuka dan bertanggung jawab untuk sebesar-besarnya kemakmuran rakyat.
+(2) Rancangan undang-undang anggaran pendapatan dan belanja negara diajukan oleh Presiden untuk dibahas bersama Dewan Perwakilan Rakyat dengan memperhatikan pertimbangan Dewan Perwakilan Daerah.
+(3) Apabila Dewan Perwakilan Rakyat tidak menyetujui rancangan anggaran pendapatan dan belanja negara yang diusulkan oleh Presiden, Pemerintah menjalankan Anggaran Pendapatan dan Belanja Negara tahun yang lalu.

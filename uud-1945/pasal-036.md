@@ -1,1 +1,1 @@
-Bahasa negara ialah Bahasa Indonesia.
+Bahasa Negara ialah Bahasa Indonesia.

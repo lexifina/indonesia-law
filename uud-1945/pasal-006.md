@@ -1,2 +1,2 @@
-(1) Presiden ialah orang Indonesia asli.
-(2) Presiden dan Wakil Presiden dipilih oleh Majelis Permusyawaratan Rakyat dengan suara yang terbanyak.
+(1) Calon Presiden dan calon Wakil Presiden harus seorang warga negara Indonesia sejak kelahirannya dan tidak pernah menerima kewarganegaraan lain karena kehendaknya sendiri, tidak pernah mengkhianati negara, serta mampu secara rohani dan jasmani untuk melaksanakan tugas dan kewajiban sebagai Presiden dan Wakil Presiden.
+(2) Syarat-syarat untuk menjadi Presiden dan Wakil Presiden diatur lebih lanjut dengan undang-undang.

@@ -1,1 +1,0 @@
-Sebelum Majelis Permusyawaratan Rakyat, Dewan Perwakilan Rakyat, dan Dewan Pertimbangan Agung dibentuk menurut Undang-Undang Dasar ini, segala kekuasaannya dijalankan oleh Presiden dengan bantuan sebuah komite nasional.

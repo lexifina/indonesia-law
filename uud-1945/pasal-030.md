@@ -1,2 +1,5 @@
-(1) Tiap-tiap warga negara berhak dan wajib ikut serta dalam usaha pembelaan negara.
-(2) Syarat-syarat tentang pembelaan diatur dengan undang-undang.
+(1) Tiap-tiap warga negara berhak dan wajib ikut serta dalam usaha pertahanan dan keamanan negara.
+(2) Usaha pertahanan dan keamanan negara dilaksanakan melalui sistem pertahanan dan keamanan rakyat semesta oleh Tentara Nasional Indonesia dan Kepolisian Negara Republik Indonesia, sebagai kekuatan utama, dan rakyat, sebagai kekuatan pendukung.
+(3) Tentara Nasional Indonesia terdiri atas Angkatan Darat, Angkatan Laut, dan Angkatan Udara sebagai alat negara bertugas mempertahankan, melindungi, dan memelihara keutuhan dan kedaulatan negara.
+(4) Kepolisian Negara Republik Indonesia sebagai alat negara yang menjaga keamanan dan ketertiban masyarakat bertugas melindungi, mengayomi, melayani masyarakat, serta menegakkan hukum.
+(5) Susunan dan kedudukan Tentara Nasional Indonesia, Kepolisian Negara Republik Indonesia, hubungan kewenangan Tentara Nasional Indonesia dan Kepolisian Negara Republik Indonesia di dalam menjalankan tugasnya, syarat-syarat keikutsertaan warga negara dalam usaha pertahanan dan keamanan negara, serta hal-hal yang terkait dengan pertahanan dan keamanan diatur dengan undang-undang. PENDIDIKAN DAN KEBUDAYAAN

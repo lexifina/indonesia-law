@@ -1,2 +1,2 @@
 (1) Negara berdasar atas Ketuhanan Yang Maha Esa.
-(2) Negara menjamin kemerdekaan tiap-tiap penduduk untuk memeluk agamanya masing-masing dan untuk beribadat menurut agamanya dan kepercayaannya itu.
+(2) Negara menjamin kemerdekaan tiap-tiap penduduk untuk memeluk agamanya masing-masing dan untuk beribadat menurut agamanya dan kepercayaannya itu PERTAHANAN DAN KEAMANAN NEGARA

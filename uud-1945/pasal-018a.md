@@ -1,0 +1,2 @@
+(1) Hubungan wewenang antara pemerintah pusat dan pemerintahan daerah provinsi, kabupaten, dan kota, atau antara provinsi dan kabupaten dan kota, diatur dengan undang-undang dengan memperhatikan kekhususan dan keragaman daerah.
+(2) Hubungan keuangan, pelayanan umum, pemanfaatan sumber daya alam dan sumber daya lainnya antara pemerintah pusat dan pemerintahan daerah diatur dan dilaksanakan secara adil dan selaras berdasarkan undang-undang.

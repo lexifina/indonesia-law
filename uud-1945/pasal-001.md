@@ -1,2 +1,3 @@
-(1) Negara Indonesia ialah Negara kesatuan yang berbentuk Republik.
-(2) Kedaulatan adalah di tangan rakyat, dan dilakukan sepenuhnya oleh Majelis Permusyawaratan Rakyat.
+(1) Negara Indonesia ialah Negara Kesatuan, yang berbentuk Republik.
+(2) Kedaulatan berada di tangan rakyat dan dilaksanakan menurut Undang-Undang Dasar.
+(3) Negara Indonesia adalah negara hukum.
