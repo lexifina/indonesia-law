@@ -1,7 +1,0 @@
-# Pasal 160
-(1) a. Saksi dipanggil ke dalam ruang sidang seorang demi seorang menurut urutan yang dipandang sebaik-baiknya oleh hakim ketua sidang setelah mendengar pendapat penuntut umum, terdakwa atau penasihat hukum;
-b. Yang pertama-tama didengar keterangannya adalah korban yang menjadi saksi;
-c. Dalam hal ada saksi baik yang menguntungkan maupun yang memberatkan terdakwa yang tercantum dalam surat pelimpahan perkara dan atau yang diminta oleh terdakwa atau penasihat hukum atau penuntut umum selama berlangsungnya sidang atau sebelum dijatuhkannya putusan, hakim ketua sidang wajib mendengar keterangan saksi tersebut.
-(2) Hakim ketua sidang menanyakan kepada saksi keterangan tentang nama lengkap, tempat lahir, umur atau tanggal lahir, jenis kelamin, kebangsaan, tempat tinggal, agama dan pekerjaan, selanjutnya apakah ia kenal terdakwa sebelum terdakwa melakukan perbuatan yang menjadi dasar dakwaan serta apakah ia berkeluarga sedarah atau semenda dan sampai derajat keberapa dengan terdakwa, atau apakah ia suami atau isteri terdakwa meskipun sudah bercerai atau terikat hubungan kerja dengannya.
-(3) Sebelum memberi keterangan, saksi wajib mengucapkan sumpah atau janji menurut cara agamanya masing-masing, bahwa ia akan memberikan keterangan yang sebenarnya dan tidak lain daripada yang sebenarnya.
-(4) Jika pengadilan menganggap perlu, seorang saksi atau ahli wajib bersumpah atau berjanji sesudah saksi atau ahli itu selesai memberi keterangan.

@@ -1,4 +1,0 @@
-# Pasal 157
-(1) Seorang hakim wajib mengundurkan diri dari mengadili perkara tertentu apabila ia terikat hubungan keluarga sedarah atau semenda sampai derajat ketiga, hubungan suami atau isteri meskipun sudah bercerai dengan hakim ketua sidang, salah seorang hakim anggota, penuntut umum atau panitera.
-(2) Hakim ketua sidang, hakim anggota, penuntut umum atau panitera wajib mangundurkan diri dari menangani perkara apabila terikat hubungan keluarga sedarah atau semenda sampai derajat ketiga atau hubungan suami atau isteri meskipun sudah bercerai dengan terdakwa atau dengan penasihat hukum.
-(3) Jika dipanuhi katentuan ayat (1) dan ayat (2) mereka yang mengundurkin diri harus diganti dan apabila tidak dipanuhi atau tidak diganti sedangkan perkara telah diputus, maka perkara wajib segera diadili ulang dengan susunan yang lain.

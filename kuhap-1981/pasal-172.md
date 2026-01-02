@@ -1,3 +1,0 @@
-# Pasal 172
-(1) Satelah saksi memberi keterangan maka terdakwa atau penasihat hukum atau penuntut umum dapat mengajukan permintaan kepada hakim ketua sidang, agar di antara saksi tersebut yang tidak mereka kehendaki kahadirannya, dikeluarkan dari ruang sidang, supaya saksi lainnya di panggil masuk oleh hakim ketua sidang untuk didengar katerangannya, baik seorang demi seorang maupun bersama-sama tanpa hadirnya saksi yang dikeluarkan tersebut.
-(2) Apabila dipandang perlu hakim karena jabatannya dapat minta supaya saksi yang telah didengar keterangannya ke luar dari ruang sidang untuk selanjutnya mandengar keterangan saksi yang lain.

@@ -1,4 +1,0 @@
-# Pasal 89
-(1) Tindak pidana yang dilakukan bersama-sama oleh mereka yang termasuk lingkungan peradilan umum dan lingkungan peradilan militer, diperiksa dan diadili oleh pengadilan dalam lingkungan peradilan umum kecuali jika menurut keputusan Menteri Pertahanan dan Keamanan dengan persetujuan Menteri Kehakiman perkara itu harus diperiksa dan diadili oleh pengadilan dalam lingkungan peradilan militer.
-(2) Penyidikan perkara pidana sebagaimana dimaksud dalam ayat (1) dilaksanakan oleh suatu tim tetap yang terdiri dari penyidik sebagaimana dimaksud dalam Pasal 6 dan polisi militer Angkatan Bersenjata Republik Indonesia dan oditur militer atau oditur militer tinggi sesuai dengan wewenang mereka masing-masing menurut hukum yang berlaku untuk penyidikan perkara pidana.
-(3) Tim sebagaimana dimaksud dalam ayat (2) dibentuk dengan surat keputusan bersama Menteri Pertahanan dan Keamanan dan Menteri Kehakiman.

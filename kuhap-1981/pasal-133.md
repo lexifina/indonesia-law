@@ -1,4 +1,0 @@
-# Pasal 133
-(1) Dalam hal penyidik untuk kepentingan peradilan menangani seorang korban baik luka, keracunan ataupun mati yang diduga karena peristiwa yang merupakan tindak pidana, ia berwenang mengajukan permintaan keterangan ahli kepada ahli kedokteran kehakiman atau dokter dan atau ahli lainnya.
-(2) Permintaan keterangan ahli sebagaimana dimaksud dalam ayat (1) dilakukan secara tertulis, yang dalam surat itu disebutkan dengan tegas untuk pemeriksaan luka atau pemeriksaan mayat dan atau pemeriksaan bedah mayat.
-(3) Mayat yang dikiriin kepada ahli kedokteran kehakiman atau dokter pada rumah sakit harus diperlakukan secara baik dengan penuh penghormatan terhadap mayat tersebut dan diberi label yang memuat identitas mayat, dilak dengan diberi cap jabatan yang dilekatkan pada ibu jari kaki atau bagian lain badan mayat.

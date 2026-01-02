@@ -1,6 +1,0 @@
-# Pasal 265
-(1) Ketua peagadilan setelah menerima permintaan peninjauan kembali sebagaimana dimaksud dalam Pasal 263 ayat (1) menunjuk hakim yang tidak memeriksa perkara semula yangdimintakan peninjauan-kembali itu untuk memeriksa apakah permintaan peninjauan kembali tersebut memenuhi alasan sebagaimana dimaksud dalam Pasal 263 ayat (2).
-(2) Dalam pemeriksaan sebagaimana tersebut pada ayat (1), pemohon dan jaksa ikut hadir dan dapat menyampaikan pendapatnya.
-(3) Atas pemeriksaan tersebut dibuat berita acara pemeriksaan yang ditandatangani oleh hakim, jaksa, pemohon dan panitera dan berdasarkan berita acara itu dibuat berita acara pendapat yang ditandatangani oleh hakim dan panitera.
-(4) Ketua pengadilan segera melanjutkan permintaan peninjauan kembali yang dilampiri berkas perkara semula, berita acara pemeriksaan dan berita acara pendapat kepada Mahkamah Agung yang tembusan surat pengantarnya disampaikan kepada pemohon dan jaksa.
-(5) Dalam hal suatu perkara yang dimintakan peninjauan kembali adalah putusan pengadilan banding, maka tembusan surat pengantar tersebut harus dilampiri tembusan berita acara pemeriksaan serta berita acara pendapat dan disampaikan kepada pengadilan banding yang bersangkutan.

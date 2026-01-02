@@ -1,4 +1,0 @@
-# Pasal 90
-(1) Untuk menetapkan apakah pengadilan dalam lingkungan peradilan militer atau pengadilan dalam lingkungan peradilan umum yang akan mengadili perkara pidana sebagaimana dimaksud dalam Pasal 89 ayat (1), diadakan penelitian bersama oleh jaksa atau jaksa tinggi dan oditur militer atau oditur militer tinggi atas dasar hasil penyidikan tim tersebut pada Pasal 89 ayat (2).
-(2) Pendapat dari penelitian bersama tersebut dituangkan dalam berita acara yang ditandatangani oleh para pihak sebagaimana dimaksud dalam ayat (1).
-(3) Jika dalam penelitian bersama itu terdapat persesuaian pendapat tentang pengadilan yang berwenang mengadili perkara tersebut, maka hal itu dilaporkan oleh jaksa atau jaksa tinggi kepada Jaksa Agung dan oleh oditur militer atau oditur militer tinggi kepada Oditur Jenderal Angkatan Bersenjata Republik Indonesia.

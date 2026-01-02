@@ -1,2 +1,0 @@
-# Pasal 59
-Tersangka atau terdakwa yang dikenakan penahanan berhak diberitahukan tentang penahanan atas dirinya oleh pejabat yang berwenang, pada semua tingkat pemeriksaan dalam proses peradilan, kepada keluarganya atau orang lain yang serumah dengan tersangka atau terdakwa ataupun orang lain yang bantuannya dibutuhkan oleh tersangka atau terdakwa untuk mendapatkan bantuan hukum atau jaminan bagi penangguhannya.
