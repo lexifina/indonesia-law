@@ -1,0 +1,1 @@
+Setiap Orang yang dengan Kekerasan atau Ancaman Kekerasan memaksa seorang Pejabat untuk melakukan atau tidak melakukan perbuatan dalam jabatannya yang sah, dipidana dengan pidana penjara paling lama 4 (empat) tahun atau pidana denda paling banyak kategori IV.

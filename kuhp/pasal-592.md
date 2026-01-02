@@ -1,0 +1,2 @@
+(1) Setiap Orang yang menjadikan kebiasaan untuk membeli, menukar, menerima jaminan atau gadai, menyimpan, atau menyembunyikan benda yang diperoleh dari Tindak Pidana, dipidana dengan pidana penjara paling lama 6 (enam) tahun atau pidana denda paling banyak kategori V.
+(2) Jika pelaku Tindak Pidana sebagaimana dimaksud pada ayat (1) melakukan perbuatan tersebut sebagai mata pencaharian, dapat dijatuhi pidana tambahan berupa pencabutan hak sebagaimana dimaksud dalam Pasal 86 huruf a, huruf b, huruf c, dan/atau huruf g.

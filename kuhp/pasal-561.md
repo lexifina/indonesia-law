@@ -1,0 +1,1 @@
+Nakhoda Kapal Indonesia yang dengan maksud menguntungkan diri sendiri atau orang lain secara melawan hukum atau untuk menyembunyikan keuntungan yang demikian dengan cara mengubah haluan Kapalnya, dipidana dengan pidana penjara paling lama 4 (empat) tahun atau pidana denda paling banyak kategori IV.

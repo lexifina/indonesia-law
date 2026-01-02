@@ -1,0 +1,3 @@
+(1) Setiap Orang yang membuat gaduh di dekat tempat untuk menjalankan ibadah pada waktu ibadah sedang berlangsung, dipidana dengan pidana denda paling banyak kategori I.
+(2) Setiap Orang yang dengan Kekerasan atau Ancaman Kekerasan mengganggu, merintangi, atau membubarkan pertemuan keagamaan atau kepercayaan, dipidana dengan pidana penjara paling lama 2 (dua) tahun atau pidana denda paling banyak kategori III.
+(3) Setiap Orang yang dengan Kekerasan atau Ancaman Kekerasan mengganggu, merintangi, atau membubarkan orang yang sedang melaksanakan ibadah atau upacara keagamaan atau kepercayaan, dipidana dengan pidana penjara paling lama 5 (lima) tahun atau pidana denda paling banyak kategori IV.

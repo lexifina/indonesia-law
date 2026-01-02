@@ -1,0 +1,1 @@
+Dalam hal Tindak Pidana diancam dengan pidana pokok secara alternatif, penjatuhan pidana pokok yang lebih ringan harus lebih diutamakan, jika hal itu dipertimbangkan telah sesuai dan dapat menunjang tercapainya tujuan pemidanaan.

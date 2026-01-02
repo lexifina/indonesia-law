@@ -1,0 +1,1 @@
+Ketentuan mengenai permufakatan jahat, persiapan, percobaan, dan pembantuan yang diatur dalam Undang-Undang mengenai Tindak Pidana berat terhadap hak asasi manusia, Tindak Pidana terorisme, Tindak Pidana korupsi, Tindak Pidana pencucian uang, dan Tindak Pidana narkotika berlaku sesuai dengan ketentuan dalam Undang-Undang tersebut.

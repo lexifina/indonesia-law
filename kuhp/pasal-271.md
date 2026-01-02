@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum menggali atau membongkar makam, mengambil, memindahkan, atau mengangkut jenazah, dan/atau memperlakukan jenazah secara tidak beradab, dipidana dengan pidana penjara paling lama 2 (dua) tahun atau pidana denda paling banyak kategori III.

@@ -1,0 +1,2 @@
+(1) Setiap Orang yang memberikan atau menyerahkan kepada orang lain anak yang ada di bawah kekuasaannya yang sah dan belum berumur 12 (dua belas) tahun, padahal diketahui bahwa anak tersebut akan dimanfaatkan untuk melakukan perbuatan meminta minta atau untuk melakukan pekerjaan yang berbahaya atau yang dapat membahayakan kesehatannya, dipidana dengan pidana penjara paling lama 4 (empat) tahun atau pidana denda paling banyak kategori IV.
+(2) Setiap Orang yang menerima anak untuk dimanfaatkan sebagaimana dimaksud pada ayat (1), dipidana dengan pidana yang sama.

@@ -1,0 +1,1 @@
+Setiap Orang yang tanpa izin meminjamkan uang atau Barang dalam bentuk gadai, jual beli dengan boleh dibeli kembali, atau perjanjian komisi sebagai mata pencaharian, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori III.

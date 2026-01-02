@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum merusak Pesawat Udara Dalam Dinas Penerbangan atau mengakibatkan kerusakan Pesawat Udara sehingga tidak dapat terbang atau membahayakan keselamatan penerbangan, dipidana dengan pidana penjara paling lama 12 (dua belas) tahun.

@@ -1,0 +1,1 @@
+Alasan pembenar dan alasan pemaaf yang dapat diajukan oleh pengurus yang mempunyai kedudukan fungsional, pemberi perintah, pemegang kendali, dan/atau pemilik manfaat Korporasi dapat juga diajukan oleh Korporasi sepanjang alasan tersebut berhubungan langsung dengan Tindak Pidana yang didakwakan kepada Korporasi.

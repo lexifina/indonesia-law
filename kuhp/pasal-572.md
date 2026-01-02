@@ -1,0 +1,1 @@
+Setiap Orang yang tanpa hak memakai tanda pengenal walaupun sedikit berlainan, yang pemakaiannya sesuai dengan ketentuan peraturan perundang-undangan hanya untuk Kapal rumah sakit atau sekoci dari Kapal tersebut atau untuk Kapal kecil yang digunakan untuk menolong orang sakit, dipidana dengan pidana penjara paling lama 6 (enam) Bulan atau pidana denda paling banyak kategori II.

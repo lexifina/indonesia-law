@@ -1,0 +1,1 @@
+Setiap Orang yang melakukan Makar dengan maksud membunuh atau merampas kemerdekaan Presiden dan/atau Wakil Presiden atau menjadikan Presiden dan/atau Wakil Presiden tidak mampu menjalankan pemerintahan, dipidana dengan pidana mati, pidana penjara seumur hidup, atau pidana penjara paling lama 20 (dua puluh) tahun.

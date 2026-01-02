@@ -1,0 +1,1 @@
+Nakhoda Kapal Indonesia yang mengambil alih atau menarik Kapal dari pemiliknya atau dari Pengusaha yang memiliki dan memakai Kapal tersebut untuk keuntungan diri sendiri, dipidana dengan pidana penjara paling lama 8 (delapan) tahun.

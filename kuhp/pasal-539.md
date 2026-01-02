@@ -1,0 +1,2 @@
+(1) Pejabat yang berwenang yang melangsungkan perkawinan seseorang, padahal mengetahui bahwa perkawinan yang ada pada waktu itu menjadi halangan yang sah baginya untuk kawin lagi dipidana dengan pidana penjara paling lama 4 (empat) tahun 6 (enam) Bulan.
+(2) Pejabat yang berwenang yang melangsungkan perkawinan seseorang, padahal mengetahui bahwa perkawinan tersebut ada halangan yang sah selain halangan sebagaimana dimaksud pada ayat (1) dipidana dengan pidana penjara paling lama 5 (lima) tahun.

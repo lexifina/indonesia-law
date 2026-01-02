@@ -1,0 +1,3 @@
+(1) Setiap Orang yang dengan lisan menyerang kehormatan atau nama baik orang lain dengan cara menuduhkan suatu hal, dengan maksud supaya hal tersebut diketahui umum, dipidana karena pencemaran, dengan pidana penjara paling lama 9 (sembilan) Bulan atau pidana denda paling banyak kategori II.
+(2) Jika perbuatan sebagaimana dimaksud pada ayat (1) dilakukan dengan tulisan atau gambar yang disiarkan, dipertunjukkan, atau ditempelkan di tempat umum, dipidana karena pencemaran tertulis, dengan pidana penjara paling lama 1 (satu) tahun 6 (enam) Bulan atau pidana denda paling banyak kategori III.
+(3) Perbuatan sebagaimana dimaksud pada ayat (1) dan ayat (2) tidak dipidana jika dilakukan untuk kepentingan umum atau karena terpaksa membela diri. Bagian Kedua..

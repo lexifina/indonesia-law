@@ -1,0 +1,1 @@
+Setiap Orang yang dengan maksud menguntungkan diri sendiri atau orang lain secara melawan hukum, menyiarkan kabar bohong yang mengakibatkan naik atau turunnya harga Barang dagangan, dana, transaksi keuangan, atau Surat berharga dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.

@@ -1,0 +1,6 @@
+(1) Setiap Orang yang menyebarkan dan mengembangkan ajaran komunisme /marxisme-leninisme atau paham lain yang bertentangan dengan Pancasila Di Muka Umum dengan lisan atau tulisan termasuk menyebarkan atau mengembangkan melalui media apa pun, dipidana dengan pidana penjara paling lama 4 (empat) tahun.
+(2) Dalam hal perbuatan sebagaimana dimaksud pada ayat (1) dilakukan dengan maksud mengubah atau mengganti Pancasila sebagai dasar negara, dipidana dengan pidana penjara paling lama 7 (tujuh) tahun.
+(3) Dalam hal perbuatan sebagaimana dimaksud pada ayat (1) atau ayat (2) mengakibatkan terjadinya kerusuhan dalam masyarakat atau kerugian Harta Kekayaan, dipidana dengan pidana penjara paling lama 10 (sepuluh) tahun.
+(4) Dalam hal perbuatan sebagaimana dimaksud pada ayat (3) mengakibatkan orang menderita Luka Berat, dipidana dengan pidana penjara paling lama 12 (dua belas) tahun.
+(5) Dalam hal perbuatan sebagaimana dimaksud pada ayat (3) mengakibatkan matinya orang, dipidana dengan pidana penjara paling lama 15 (lima belas) tahun.
+(6) Tidak dipidana orang yang melakukan kajian terhadap ajaran komunisme/marxisme-leninisme atau paham lain yang bertentangan dengan Pancasila untuk kepentingan ilmu pengetahuan.

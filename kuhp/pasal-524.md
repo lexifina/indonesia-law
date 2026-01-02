@@ -1,0 +1,1 @@
+Setiap Orang yang karena kealpaannya mengakibatkan bangunan gedung rusak, hancur, atau tidak dapat dipakai lagi, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori III.

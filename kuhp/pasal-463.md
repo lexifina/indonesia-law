@@ -1,0 +1,2 @@
+(1) Setiap perempuan yang melakukan aborsi, dipidana dengan pidana penjara paling lama 4 (empat) tahun.
+(2) Ketentuan sebagaimana dimaksud pada ayat (1) tidak berlaku dalam hal perempuan merupakan Korban Tindak Pidana perkosaan atau Tindak Pidana kekerasan seksual lain yang menyebabkan kehamilan yang umur kehamilannya tidak melebihi 14 (empat belas) minggu atau memiliki indikasi kedaruratan medis.

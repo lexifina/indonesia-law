@@ -1,0 +1,1 @@
+Ketentuan pidana sebagaimana dimaksud dalam Pasal 481 berlaku juga bagi Tindak Pidana sebagaimana dimaksud dalam Pasal 492 sampai dengan Pasal 509, kecuali ketentuan sebagaimana dimaksud dalam Pasal 509 huruf b.

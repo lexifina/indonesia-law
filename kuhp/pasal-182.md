@@ -1,0 +1,1 @@
+Dalam Dinas Penerbangan adalah jangka waktu sejak saat Pesawat Udara disiapkan oleh awak darat atau oleh awak pesawat untuk penerbangan tertentu sampai lewat 24 (dua puluh empat) jam sesudah pendaratan.

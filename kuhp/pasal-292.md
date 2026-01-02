@@ -1,0 +1,2 @@
+(1) Setiap Orang yang menyebutkan identitas pelapor, saksi, atau Korban atau hal lain yang memberikan kemungkinan dapat diketahuinya identitas tersebut padahal telah diberitahukan kepadanya identitas tersebut harus dirahasiakan, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.
+(2) Ketentuan sebagaimana dimaksud pada ayat (1) hanya berlaku jika keharusan untuk merahasiakan identitas pelapor, saksi, atau Korban disebutkan secara tegas dalam Undang-Undang.

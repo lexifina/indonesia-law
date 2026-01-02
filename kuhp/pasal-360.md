@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum merobek, membuat tidak dapat dibaca, atau merusak maklumat yang diumumkan atas nama Pejabat yang berwenang atau berdasarkan ketentuan peraturan perundang-undangan dengan maksud untuk mencegah atau menyulitkan orang mengetahui isi maklumat tersebut, dipidana dengan pidana denda paling banyak kategori II.

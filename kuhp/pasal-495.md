@@ -1,0 +1,1 @@
+Setiap Orang yang melakukan perbuatan dengan cara curang yang mengakibatkan orang lain menderita kerugian ekonomi, melalui pengakuan palsu atau dengan tidak memberitahukan keadaan yang sebenarnya, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori II.

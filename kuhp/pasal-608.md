@@ -1,0 +1,1 @@
+Ketentuan sebagaimana dimaksud dalam Pasal 607 ayat (1) huruf c tidak berlaku bagi pihak pelapor yang melaksanakan kewajiban pelaporan sebagaimana diatur dalam Undang-Undang tentang Pencegahan dan Pemberantasan Tindak Pidana Pencucian Uang.

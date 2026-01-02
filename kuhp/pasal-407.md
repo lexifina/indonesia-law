@@ -1,0 +1,2 @@
+(1) Setiap Orang yang memproduksi, membuat, memperbanyak, menggandakan, menyebarluaskan, menyiarkan, mengimpor, mengekspor, menawarkan, memperjualbelikan, menyewakan, atau menyediakan Pornografi, dipidana dengan pidana penjara paling singkat 6 (enam) Bulan dan pidana penjara paling lama 10 (sepuluh) tahun atau pidana denda paling sedikit kategori IV dan pidana denda paling banyak kategori VI.
+(2) Perbuatan sebagaimana dimaksud pada ayat (1) tidak dipidana jika merupakan karya seni, budaya, olahraga, kesehatan, dan/atau ilmu pengetahuan.

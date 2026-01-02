@@ -1,0 +1,1 @@
+Setiap Orang yang tanpa hak secara terang-terangan mempertunjukkan suatu alat untuk menggugurkan kandungan, menawarkan, menyiarkan tulisan, atau menunjukkan untuk dapat memperoleh alat untuk menggugurkan kandungan, dipidana dengan pidana penjara paling lama 6 (enam) Bulan atau pidana denda paling banyak kategori II.

@@ -1,0 +1,2 @@
+(1) Jika penyitaan dan pelelangan kekayaan atau pendapatan sebagaimana dimaksud dalam Pasal 81 ayat (3) tidak dapat dilakukan, pidana denda di atas kategori II yang tidak dibayar diganti dengan pidana penjara paling singkat 1 (satu) tahun dan paling lama sebagaimana diancamkan untuk Tindak Pidana yang bersangkutan.
+(2) Ketentuan sebagaimana dimaksud dalam Pasal 82 ayat (3) berlaku juga untuk ketentuan sebagaimana dimaksud pada ayat (1) sepanjang mengenai pidana penjara pengganti.

@@ -1,0 +1,3 @@
+(1) Setiap Orang yang karena kealpaannya mengakibatkan orang lain luka sehingga timbul penyakit atau halangan menjalankan jabatan, mata pencaharian, atau profesi selama waktu tertentu, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori II.
+(2) Setiap Orang yang karena kealpaannya mengakibatkan orang lain Luka Berat, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori III.
+(3) Setiap Orang yang karena kealpaannya mengakibatkan matinya orang lain, dipidana dengan pidana penjara paling lama 5 (lima) tahun atau pidana denda paling banyak kategori V.

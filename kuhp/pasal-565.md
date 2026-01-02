@@ -1,0 +1,1 @@
+Nakhoda yang Kapalnya memakai bendera Indonesia, padahal diketahui tidak berhak untuk memakai bendera tersebut, dipidana dengan pidana penjara paling lama 2 (dua) tahun atau pidana denda paling banyak kategori III.

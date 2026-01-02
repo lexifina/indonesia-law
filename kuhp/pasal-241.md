@@ -1,0 +1,4 @@
+(1) Setiap Orang yang menyiarkan, mempertunjukkan, atau menempelkan tulisan atau gambar sehingga terlihat oleh umum, memperdengarkan rekaman sehingga terdengar oleh umum, atau menyebarluaskan dengan sarana teknologi informasi yang berisi penghinaan terhadap pemerintah atau lembaga negara, dengan maksud agar isi penghinaan diketahui umum, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.
+(2) Dalam hal Tindak Pidana sebagaimana dimaksud pada ayat (1) berakibat terjadinya kerusuhan dalam masyarakat, dipidana dengan pidana penjara paling lama 4 (empat) tahun atau pidana denda paling banyak kategori IV.
+(3) Tindak Pidana sebagaimana dimaksud pada ayat (1) hanya dapat dituntut berdasarkan aduan pihak yang dihina.
+(4) Aduan sebagaimana dimaksud pada ayat (3) dilakukan secara tertulis oleh pimpinan pemerintah atau lembaga negara.

@@ -1,0 +1,1 @@
+Pornografi adalah gambar, sketsa, ilustrasi, foto, suara, bunyi, gambar bergerak, animasi, kartun, percakapan, gerak tubuh, atau bunyi pesan lainnya melalui berbagai bentuk media komunikasi dan/atau pertunjukan Di Muka Umum, yang memuat kecabulan atau eksploitasi seksual yang melanggar norma kesusilaan dalam masyarakat.

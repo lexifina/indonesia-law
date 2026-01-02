@@ -1,0 +1,1 @@
+Setiap Pejabat yang tidak memenuhi hak saksi dan/atau Korban padahal saksi dan/atau Korban telah memberikan kesaksian yang benar dalam proses peradilan, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.

@@ -1,0 +1,1 @@
+Pengurus atau komisaris Korporasi yang dinyatakan pailit atau yang diperintahkan melakukan pemberesan perusahaan berdasarkan putusan pengadilan secara curang mengurangi hak kreditur dengan cara sebagaimana dimaksud dalam Pasal 512, dipidana dengan pidana penjara paling lama 7 (tujuh) tahun atau pidana denda paling banyak kategori VI.

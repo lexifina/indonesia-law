@@ -1,0 +1,1 @@
+Pesawat Udara adalah setiap mesin atau alat yang dapat terbang di atmosfer karena gaya angkat dari reaksi udara, tetapi bukan karena reaksi udara terhadap permukaan bumi yang digunakan untuk penerbangan.

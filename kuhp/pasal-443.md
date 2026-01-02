@@ -1,0 +1,2 @@
+(1) Setiap Orang yang membuka rahasia yang wajib disimpannya karena jabatan, profesi, atau tugas yang diberikan oleh instansi pemerintah baik rahasia yang sekarang maupun yang dahulu, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori III.
+(2) Jika Tindak Pidana sebagaimana dimaksud pada ayat (1) dilakukan mengenai rahasia orang lain, hanya dapat dituntut atas pengaduan orang tersebut.

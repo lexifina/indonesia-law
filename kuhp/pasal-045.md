@@ -1,0 +1,2 @@
+(1) Korporasi merupakan subjek Tindak Pidana.
+(2) Korporasi sebagaimana dimaksud pada ayat (1) mencakup badan hukum yang berbentuk perseroan terbatas, yayasan, koperasi, badan usaha milik negara, badan usaha milik daerah, atau yang disamakan dengan itu, serta perkumpulan baik yang berbadan hukum maupun tidak berbadan hukum, badan usaha yang berbentuk firma, persekutuan komanditer, atau yang disamakan dengan itu sesuai dengan ketentuan peraturan perundang-undangan.

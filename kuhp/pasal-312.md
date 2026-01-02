@@ -1,0 +1,1 @@
+Setiap Orang yang pada waktu terjadi kebakaran atau akan terjadi kebakaran, menyembunyikan atau membuat tidak dapat dipakai perkakas atau alat pemadam kebakaran atau dengan cara apa pun merintangi atau menghalangi pekerjaan memadamkan kebakaran, dipidana dengan pidana penjara paling lama 6 (enam) tahun atau pidana denda paling banyak kategori IV.

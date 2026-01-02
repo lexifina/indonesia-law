@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum menghancurkan atau membuat tidak dapat dipakai bangunan gedung, Kapal, kereta api, atau alat transportasi massal lain yang sebagian atau seluruhnya milik orang lain, dipidana dengan pidana penjara paling lama 6 (enam) tahun atau pidana denda paling banyak kategori V.

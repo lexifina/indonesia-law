@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum memiliki suatu Barang yang sebagian atau seluruhnya milik orang lain, yang ada dalam kekuasaannya bukan karena Tindak Pidana, dipidana karena penggelapan, dengan pidana penjara paling lama 4 (empat) tahun atau pidana denda paling banyak kategori IV.

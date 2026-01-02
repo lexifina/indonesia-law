@@ -1,0 +1,1 @@
+Setiap Orang yang mengabaikan perintah atau permintaan seorang Pejabat yang berwenang yang ditugaskan berdasarkan ketentuan peraturan perundang-undangan untuk mengawasi sesuatu atau yang ditugaskan atau diberi wewenang untuk menyidik atau memeriksa Tindak Pidana, dipidana dengan pidana penjara paling lama 9 (sembilan) Bulan atau pidana denda paling banyak kategori II.

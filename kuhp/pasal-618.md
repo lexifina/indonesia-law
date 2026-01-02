@@ -1,0 +1,1 @@
+Pada saat Undang-Undang ini mulai berlaku, Tindak Pidana yang sedang dalam proses peradilan menggunakan ketentuan Undang-Undang ini, kecuali Undang-Undang yang mengatur Tindak Pidana tersebut lebih menguntungkan bagi tersangka atau terdakwa.

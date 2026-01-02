@@ -1,0 +1,1 @@
+Terdakwa yang melakukan Tindak Pidana yang diancam dengan pidana penjara paling lama 5 (lima) tahun dapat dijatuhi pidana pengawasan dengan tetap memperhatikan ketentuan sebagaimana dimaksud dalam Pasal 51 sampai dengan Pasal 54 dan Pasal 70.

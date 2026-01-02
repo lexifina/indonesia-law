@@ -1,0 +1,1 @@
+Setiap Orang yang untuk memenuhi ketentuan peraturan perundang-undangan mengenai pendaftaran Kapal, memperlihatkan Surat keterangan yang diketahui bahwa isi Surat keterangan tersebut bertentangan dengan yang sebenarnya, dipidana dengan pidana penjara paling lama 5 (lima) tahun atau pidana denda paling banyak kategori IV.

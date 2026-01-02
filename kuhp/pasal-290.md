@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum menjual, menyewakan, memiliki, menggadaikan, atau menggunakan benda sitaan bukan untuk kepentingan proses peradilan, dipidana dengan pidana penjara paling lama 5 (lima) tahun atau pidana denda paling banyak kategori V.

@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum melakukan perbuatan memperkaya diri sendiri, orang lain, atau Korporasi yang merugikan keuangan negara atau perekonomian negara, dipidana dengan pidana penjara seumur hidup atau pidana penjara paling singkat 2 (dua) tahun dan paling lama 20 (dua puluh) tahun dan pidana denda paling sedikit kategori II dan paling banyak kategori VI.

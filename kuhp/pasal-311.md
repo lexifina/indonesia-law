@@ -1,0 +1,1 @@
+Setiap Orang yang karena kealpaannya mengakibatkan terjadinya kebakaran, ledakan, atau banjir yang mengakibatkan bahaya umum bagi Barang, bahaya bagi nyawa orang lain, atau mengakibatkan matinya orang, dipidana dengan pidana penjara paling lama 5 (lima) tahun atau pidana denda paling banyak kategori V.

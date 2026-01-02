@@ -1,0 +1,1 @@
+Setiap Orang yang menjadikan sebagai mata pencaharian atau kebiasaan membeli Barang dengan maksud untuk menguasai Barang tersebut bagi diri sendiri atau orang lain tanpa melunasi pembayaran, dipidana dengan pidana penjara paling lama 5 (lima) tahun atau pidana denda paling banyak kategori V.

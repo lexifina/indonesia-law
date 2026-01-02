@@ -1,0 +1,1 @@
+Nakhoda Kapal Indonesia yang tidak dalam keadaan terpaksa tidak memberi sesuatu yang wajib diberikan kepada Penumpang Kapalnya, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.

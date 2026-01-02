@@ -1,0 +1,1 @@
+Kekerasan adalah setiap perbuatan dengan atau tanpa menggunakan kekuatan fisik yang menimbulkan bahaya bagi badan atau nyawa, mengakibatkan penderitaan fisik, seksual, atau psikologis, dan merampas kemerdekaan, termasuk menjadikan orang pingsan atau tidak berdaya.

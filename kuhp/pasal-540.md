@@ -1,0 +1,1 @@
+Pejabat yang berwenang yang mengeluarkan salinan atau petikan putusan pengadilan sebelum putusan ditandatangani sebagaimana mestinya, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori III.

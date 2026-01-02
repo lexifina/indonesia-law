@@ -1,0 +1,3 @@
+(1) Dokter yang memberi Surat keterangan tentang keadaan kesehatan atau kematian seseorang yang tidak sesuai dengan keadaan sebenarnya, dipidana dengan pidana penjara paling lama 4 (empat) tahun atau pidana denda paling banyak kategori IV.
+(2) Jika keterangan sebagaimana dimaksud pada ayat (1) diberikan dengan maksud untuk memasukkan atau menahan seseorang ke dalam rumah sakit jiwa, dipidana dengan pidana penjara paling lama 8 (delapan) tahun atau pidana denda paling banyak kategori VI.
+(3) Pidana sebagaimana dimaksud pada ayat (1) dan ayat (2) berlaku juga bagi Setiap Orang yang menggunakan Surat keterangan palsu tersebut seolah-olah isinya sesuai dengan yang sebenarnya.

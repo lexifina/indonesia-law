@@ -1,0 +1,2 @@
+(1) Setiap Orang yang Di Muka Umum menghasut dengan maksud agar seseorang menjadi tidak beragama atau berkepercayaan yang dianut di Indonesia, dipidana dengan pidana penjara paling lama 2 (dua) tahun atau pidana denda paling banyak kategori III.
+(2) Setiap Orang yang dengan Kekerasan atau Ancaman Kekerasan memaksa seseorang menjadi tidak beragama atau berkepercayaan atau berpindah agama atau kepercayaan yang dianut di Indonesia, dipidana dengan pidana penjara paling lama 4 (empat) tahun atau pidana denda paling banyak kategori IV.

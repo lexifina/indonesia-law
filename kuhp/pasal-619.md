@@ -1,0 +1,1 @@
+Pada saat Undang-Undang ini mulai berlaku, pidana tutupan tetap dilaksanakan berdasarkan Undang-Undang Nomor 20 Tahun 1946 tentang Hukuman Tutupan sampai dibentuknya Undang-Undang mengenai pidana tutupan yang baru.

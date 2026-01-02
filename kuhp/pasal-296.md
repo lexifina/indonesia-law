@@ -1,0 +1,1 @@
+Setiap Orang yang menghalang-halangi saksi dan/atau Korban yang mengakibatkan tidak memperoleh pelindungan atau haknya, dipidana dengan pidana penjara paling singkat 2 (dua) tahun dan paling lama 7 (tujuh) tahun dan pidana denda paling sedikit kategori III dan paling banyak dan paling banyak kategori V.

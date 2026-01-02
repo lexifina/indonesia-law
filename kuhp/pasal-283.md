@@ -1,0 +1,1 @@
+Setiap Orang yang mencegah, menghalang halangi, atau menggagalkan pemeriksaan jenazah untuk kepentingan peradilan, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori III.

@@ -1,0 +1,1 @@
+Pada saat Undang-Undang ini mulai berlaku, ketentuan dalam Bab tentang Tindak Pidana Khusus dalam Undang-Undang ini dilaksanakan oleh lembaga penegak hukum berdasarkan tugas dan kewenangan yang diatur dalam Undang-Undang masing-masing.

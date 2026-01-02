@@ -1,0 +1,1 @@
+Setiap Orang yang merusak, merobek, menginjak-injak, membakar, atau melakukan perbuatan lain terhadap bendera negara dengan maksud menodai, menghina, atau merendahkan kehormatan bendera negara, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.

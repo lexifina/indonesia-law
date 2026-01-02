@@ -1,0 +1,1 @@
+Setiap Orang yang terpaksa melakukan perbuatan yang dilarang tidak dipidana, jika perbuatan tersebut dilakukan karena pembelaan terhadap serangan atau ancaman serangan seketika yang melawan hukum terhadap diri sendiri atau orang lain, kehormatan dalam arti kesusilaan, atau harta benda sendiri atau orang lain.

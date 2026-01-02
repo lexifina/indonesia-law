@@ -1,0 +1,3 @@
+Dipidana dengan pidana penjara paling lama 8 (delapan) tahun, Setiap Orang yang:
+a. membuat atau meminta orang lain untuk mencantumkan keterangan palsu dalam berita acara suatu keterangan Kapal tentang suatu keadaan yang kebenarannya harus dinyatakan dalam akta, dengan maksud untuk menggunakan sendiri atau menyuruh orang lain menggunakan akta tersebut seolah-olah keterangan dalam berita acara sesuai dengan yang sebenarnya jika karena penggunaan akta tersebut dapat menimbulkan kerugian; atau
+b. menggunakan akta sebagaimana dimaksud dalam huruf a seolah-olah isinya sesuai dengan yang sebenarnya jika karena penggunaan akta tersebut dapat menimbulkan kerugian.

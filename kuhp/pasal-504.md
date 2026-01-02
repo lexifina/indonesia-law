@@ -1,0 +1,1 @@
+Setiap Orang yang melakukan produksi pangan untuk diedarkan menggunakan bahan tambahan pangan melampaui ambang batas maksimum yang ditetapkan oleh Pejabat yang berwenang atau menggunakan bahan yang dilarang sebagai bahan tambahan, dipidana dengan pidana penjara paling lama 5 (lima) tahun atau pidana denda paling banyak kategori V.

@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum merusak, menghancurkan, atau membuat tidak dapat dipakai bangunan untuk menahan air atau bangunan untuk menyalurkan air yang mengakibatkan bahaya banjir, dipidana dengan pidana penjara paling lama 7 (tujuh) tahun.

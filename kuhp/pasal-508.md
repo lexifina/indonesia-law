@@ -1,0 +1,1 @@
+Pengusaha, pengurus, atau komisaris Korporasi yang mengumumkan keadaan atau neraca yang tidak benar, dipidana dengan pidana penjara paling lama 1 (satu) tahun 6 (enam) Bulan atau pidana denda paling banyak kategori III.

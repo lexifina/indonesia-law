@@ -1,0 +1,1 @@
+Jika permohonan grasi terpidana mati ditolak dan pidana mati tidak dilaksanakan selama 10 (sepuluh) tahun sejak grasi ditolak bukan karena terpidana melarikan diri, pidana mati dapat diubah menjadi pidana penjara seumur hidup dengan Keputusan Presiden.

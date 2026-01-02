@@ -1,0 +1,8 @@
+(1) Setiap Orang yang tanpa hak memiliki, menyimpan, menguasai, atau menyediakan:
+a. Narkotika Golongan I bukan tanaman, dipidana dengan pidana penjara paling singkat 4 (empat) tahun dan paling lama 12 (dua belas) tahun dan pidana denda paling sedikit kategori IV dan paling banyak kategori VI;
+b. Narkotika Golongan II, dipidana dengan pidana penjara paling singkat 3 (tiga) tahun dan paling lama 10 (sepuluh) tahun dan pidana denda paling sedikit kategori IV dan paling banyak kategori VI; dan
+c. Narkotika Golongan III, dipidana dengan pidana penjara paling singkat 2 (dua) tahun dan paling lama 7 (tujuh) tahun dan pidana denda paling sedikit kategori IV dan paling banyak kategori VI.
+(2) Dalam hal perbuatan sebagaimana dimaksud pada ayat (1) dilakukan terhadap:
+a. Narkotika Golongan I bukan tanaman yang beratnya melebihi 5 (lima) gram dipidana dengan pidana penjara seumur hidup atau pidana penjara paling singkat 5 (lima) tahun dan paling lama 20 (dua puluh) tahun dan pidana denda paling sedikit kategori V dan paling banyak kategori VI;
+b. Narkotika Golongan II yang beratnya melebihi 5 (lima) gram dipidana dengan pidana penjara paling singkat 5 (lima) tahun dan paling lama 15 (lima belas) tahun dan pidana denda paling sedikit kategori V dan paling banyak kategori VI; dan
+c. Narkotika Golongan III yang beratnya melebihi 5 (lima) gram dipidana dengan pidana penjara paling singkat 3 (tiga) tahun dan paling lama 10 (sepuluh) tahun dan pidana denda paling sedikit kategori V dan paling banyak kategori VI.

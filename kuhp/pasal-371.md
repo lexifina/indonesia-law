@@ -1,0 +1,1 @@
+Setiap Orang yang melanggar peraturan yang ditetapkan oleh Pejabat yang berwenang dan yang telah diumumkan tentang pemakaian dan pembagian air dari bangunan pengairan atau bangunan irigasi bagi kepentingan umum, dipidana dengan pidana denda paling banyak kategori II.

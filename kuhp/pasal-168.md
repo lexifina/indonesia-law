@@ -1,0 +1,1 @@
+Bangunan Listrik adalah bangunan yang digunakan untuk membangkitkan, mengalirkan, mengubah, atau menyerahkan tenaga listrik, termasuk alat yang berhubungan dengan itu, yaitu alat penjaga keselamatan, alat pemasang, alat pendukung, alat pencegah, atau alat pemberi peringatan.

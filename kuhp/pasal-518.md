@@ -1,0 +1,1 @@
+Pengurus atau komisaris Korporasi di luar ketentuan sebagaimana dimaksud dalam Pasal 516, yang membantu atau mengizinkan perbuatan yang bertentangan dengan anggaran dasar yang mengakibatkan Korporasi tersebut tidak dapat memenuhi kewajibannya atau harus dibubarkan, dipidana dengan pidana denda paling banyak kategori VI.

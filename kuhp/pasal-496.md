@@ -1,0 +1,1 @@
+Setiap Orang yang memperoleh secara curang suatu jasa untuk diri sendiri atau orang lain dari pihak ketiga tanpa membayar penuh penggunaan jasa tersebut dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori II.

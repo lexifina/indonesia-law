@@ -1,0 +1,1 @@
+Setiap Orang yang mencoret, menulisi, menggambar atau menggambari, atau membuat rusak lambang negara dengan maksud menodai, menghina, atau merendahkan kehormatan lambang negara, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.

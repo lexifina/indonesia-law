@@ -1,0 +1,1 @@
+Setiap Orang yang melaporkan atau mengadukan kepada Pejabat yang berwenang bahwa telah terjadi suatu Tindak Pidana, padahal diketahui bahwa Tindak Pidana tersebut tidak terjadi, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori II.

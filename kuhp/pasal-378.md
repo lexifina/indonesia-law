@@ -1,0 +1,1 @@
+Setiap Orang yang menerima mata uang atau uang kertas yang dikeluarkan oleh negara yang kemudian diketahui tidak asli, dipalsu atau dirusak, namun tetap mengedarkannya, kecuali yang ditentukan dalam Pasal 375 dan Pasal 377, dipidana dengan pidana penjara paling lama 9 (sembilan) Bulan atau pidana denda paling banyak kategori II.

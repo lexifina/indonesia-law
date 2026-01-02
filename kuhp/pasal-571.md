@@ -1,0 +1,1 @@
+Setiap Orang yang tidak dalam keadaan terpaksa tanpa hak melakukan profesi sebagai Nakhoda, juru mudi, atau juru mesin pada Kapal Indonesia, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori IV.

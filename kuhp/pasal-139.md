@@ -1,0 +1,1 @@
+Apabila penuntutan dihentikan untuk sementara waktu karena ada sengketa hukum yang harus diputuskan lebih dahulu, tenggang waktu kedaluwarsa penuntutan menjadi tertunda sampai sengketa tersebut mendapatkan putusan.

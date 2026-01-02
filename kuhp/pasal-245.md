@@ -1,0 +1,1 @@
+Setiap Orang yang melakukan perampasan nyawa orang, penganiayaan, perkosaan, perbuatan cabul, pencurian dengan Kekerasan, atau perampasan kemerdekaan berdasarkan diskriminasi ras dan etnis, pidananya dapat ditambah 1/3 (satu per tiga).

@@ -1,0 +1,1 @@
+Setiap Orang yang melepaskan atau memberi pertolongan ketika seseorang meloloskan diri dari penahanan yang dilakukan atas perintah Pejabat yang berwenang atau meloloskan diri dari pidana penjara atau pidana tutupan, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.

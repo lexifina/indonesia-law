@@ -1,0 +1,1 @@
+Memanjat adalah termasuk Masuk dengan melalui lubang yang sudah ada tetapi tidak untuk tempat orang lewat, atau Masuk melalui lubang dalam tanah yang sengaja digali, atau Masuk melalui atau menyeberangi selokan atau parit yang gunanya sebagai pembatas halaman.

@@ -1,0 +1,1 @@
+Ketentuan pidana sebagaimana dimaksud dalam Pasal 210 sampai dengan Pasal 214 berlaku juga, jika salah satu dari perbuatan tersebut dilakukan terhadap atau berkaitan dengan negara sekutu dalam Perang bersama.

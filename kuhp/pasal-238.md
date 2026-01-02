@@ -1,0 +1,1 @@
+Setiap Orang yang menodai atau menghina lagu kebangsaan dengan mengubah lagu kebangsaan dengan nada, irama, kata-kata, dan gubahan lain dengan maksud untuk menghina atau merendahkan kehormatan lagu kebangsaan, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.

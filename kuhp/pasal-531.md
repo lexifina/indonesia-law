@@ -1,0 +1,2 @@
+(1) Pejabat yang ditugaskan menjaga orang yang ditahan menurut perintah Pejabat yang berwenang atau putusan atau penetapan pengadilan, membiarkan orang tersebut melarikan diri, melepaskan orang tersebut, atau menolong orang tersebut pada waktu dilepaskan atau melepaskan diri, dipidana dengan pidana penjara paling lama 4 (empat) tahun.
+(2) Pejabat sebagaimana dimaksud pada ayat (1) yang karena kealpaannya mengakibatkan orang yang ditahan melarikan diri, dipidana dengan pidana penjara paling lama 1 (satu) tahun.

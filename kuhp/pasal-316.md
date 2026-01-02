@@ -1,0 +1,2 @@
+(1) Setiap Orang yang mabuk di tempat umum mengganggu ketertiban atau mengancam keselamatan orang lain, dipidana dengan pidana denda paling banyak kategori II.
+(2) Setiap Orang yang dalam keadaan mabuk melakukan pekerjaan yang harus dijalankan dengan sangat hati-hati atau dapat mengakibatkan bahaya bagi nyawa atau kesehatan orang lain, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori III.

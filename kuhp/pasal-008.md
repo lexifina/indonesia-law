@@ -1,0 +1,5 @@
+(1) Ketentuan pidana dalam Undang-Undang berlaku bagi setiap warga negara Indonesia yang melakukan Tindak Pidana di luar wilayah Negara Kesatuan Republik Indonesia.
+(2) Ketentuan sebagaimana dimaksud pada ayat (1) berlaku jika perbuatan tersebut juga merupakan Tindak Pidana di negara tempat Tindak Pidana dilakukan.
+(3) Ketentuan sebagaimana dimaksud pada ayat (1) tidak berlaku untuk Tindak Pidana yang diancam dengan pidana denda paling banyak kategori III.
+(4) Penuntutan terhadap Tindak Pidana sebagaimana dimaksud pada ayat (1) dilakukan walaupun tersangka menjadi warga negara Indonesia, setelah Tindak Pidana tersebut dilakukan sepanjang perbuatan tersebut merupakan Tindak Pidana di negara tempat Tindak Pidana dilakukan.
+(5) Warga negara Indonesia di luar wilayah Negara Kesatuan Republik Indonesia yang melakukan Tindak Pidana sebagaimana dimaksud pada ayat (1) tidak dapat dijatuhi pidana mati jika Tindak Pidana tersebut menurut hukum negara tempat Tindak Pidana tersebut dilakukan tidak diancam dengan pidana mati.

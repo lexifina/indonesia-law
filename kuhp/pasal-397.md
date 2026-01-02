@@ -1,0 +1,3 @@
+Dipidana dengan pidana penjara paling lama 1 (satu) tahun 6 (enam) Bulan atau pidana denda paling banyak kategori III, Setiap Orang yang:
+a. membuat secara tidak benar atau memalsu Surat keterangan tidak pernah terlibat Tindak Pidana, kecakapan, tidak mampu secara finansial, kecacatan, atau keadaan lain, dengan maksud untuk mempergunakan atau meminta orang lain menggunakannya supaya diterima dalam pekerjaan atau supaya menimbulkan iba dan pertolongan; atau
+b. menggunakan Surat keterangan yang tidak benar atau palsu sebagaimana dimaksud dalam huruf a, seolah-olah Surat tersebut benar atau tidak palsu.

@@ -1,0 +1,1 @@
+Jika sifat tulisan atau gambar sebagaimana dimaksud dalam Pasal 594 dan Pasal 595 merupakan Tindak Pidana yang hanya dapat dituntut atas pengaduan, penerbit atau pencetak hanya dapat dituntut atas pengaduan dari orang yang terkena Tindak Pidana tersebut.

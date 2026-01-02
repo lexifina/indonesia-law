@@ -1,0 +1,4 @@
+(1) Setiap Orang yang melakukan pencemaran atau pencemaran tertulis terhadap orang yang sudah mati, dipidana dengan pidana penjara paling lama 6 (enam) Bulan atau pidana denda paling banyak kategori II.
+(2) Jika Setiap Orang sebagaimana dimaksud pada ayat (1) melakukan Tindak Pidana tersebut dalam menjalankan profesinya dan pada waktu itu belum lewat 2 (dua) tahun sejak adanya putusan pemidanaan yang telah memperoleh kekuatan hukum tetap karena melakukan Tindak Pidana yang sama, dapat dijatuhi pidana tambahan berupa pencabutan hak sebagaimana dimaksud dalam Pasal 86 huruf f.
+(3) Tindak Pidana sebagaimana dimaksud pada ayat (1) tidak dituntut jika tidak ada pengaduan suami atau istrinya, atau dari salah seorang keluarga sedarah atau semenda dalam garis lurus atau menyamping sampai derajat kedua dari orang yang sudah mati tersebut.
+(4) Dalam masyarakat matriarkat pengaduan dapat juga dilakukan oleh orang lain yang menjalankan Kekuasaan Ayah.

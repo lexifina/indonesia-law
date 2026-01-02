@@ -1,0 +1,1 @@
+Setiap Orang yang tanpa pemberitahuan terlebih dahulu kepada yang berwenang mengadakan pawai, unjuk rasa, atau demonstrasi di jalan umum atau tempat umum yang mengakibatkan terganggunya kepentingan umum, menimbulkan keonaran, atau huru-hara dalam masyarakat, dipidana dengan pidana penjara paling lama 6 (enam) Bulan atau pidana denda paling banyak kategori II.

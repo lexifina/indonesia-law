@@ -1,0 +1,1 @@
+Anak Kunci Palsu adalah anak kunci duplikat termasuk juga segala perkakas, sistem elektronik, atau yang disamakan dengan itu yang tidak dimaksudkan untuk membuka kunci yang digunakan untuk membuka kunci.

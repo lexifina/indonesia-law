@@ -1,0 +1,4 @@
+Dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV, Setiap Orang yang:
+a. menghilangkan tanda yang gunanya untuk menunjukkan suatu meterai tidak dapat dipakai lagi pada meterai Pemerintah Republik Indonesia yang telah dipakai dengan maksud untuk memakai atau meminta orang lain memakainya seolah-olah meterai tersebut belum dipakai;
+b. dengan maksud yang sama sebagaimana dimaksud dalam huruf a, menghilangkan tanda tangan, ciri, atau tanda saat dipakainya meterai Pemerintah Republik Indonesia yang telah dipakai sesuai dengan ketentuan peraturan perundang-undangan harus dibubuhkan di atas atau pada meterai tersebut; atau
+c. memakai, menjual, menawarkan, menyerahkan, mempunyai persediaan untuk dijual, atau memasukkan ke wilayah Negara Kesatuan Republik Indonesia meterai yang tandanya, tanda tangannya, ciri, atau tanggal dipakainya dihilangkan, seolah-olah meterai tersebut belum dipakai.

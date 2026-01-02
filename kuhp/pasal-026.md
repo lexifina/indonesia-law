@@ -1,0 +1,3 @@
+(1) Dalam hal Korban Tindak Pidana aduan berada di bawah pengampuan, yang berhak mengadu merupakan pengampunya, kecuali bagi Korban Tindak Pidana aduan yang berada dalam pengampuan karena boros.
+(2) Dalam hal pengampu sebagaimana dimaksud pada ayat (1) tidak ada atau pengampu itu sendiri yang harus diadukan, pengaduan dilakukan oleh suami atau istri Korban atau keluarga sedarah dalam garis lurus.
+(3) Dalam hal suami atau istri Korban atau keluarga sedarah dalam garis lurus sebagaimana dimaksud pada ayat (2) tidak ada, pengaduan dilakukan oleh keluarga sedarah dalam garis menyamping sampai derajat ketiga.

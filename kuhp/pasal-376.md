@@ -1,0 +1,1 @@
+Setiap Orang yang mengurangi nilai mata uang dengan maksud untuk mengedarkan atau meminta mengedarkan mata uang yang dikurangi nilainya dipidana karena merusak mata uang, dengan pidana penjara paling lama 7 (tujuh) tahun atau pidana denda paling banyak kategori VI.

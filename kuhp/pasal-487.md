@@ -1,0 +1,1 @@
+Jika yang digelapkan bukan Ternak atau Barang yang bukan sumber mata pencaharian atau nafkah yang nilainya tidak lebih dari Rp1.000.000,00 (satu juta rupiah), Setiap Orang sebagaimana dimaksud dalam Pasal 486, dipidana karena penggelapan ringan, dengan pidana denda paling banyak kategori II.

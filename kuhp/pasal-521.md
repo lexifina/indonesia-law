@@ -1,0 +1,2 @@
+(1) Setiap Orang yang secara melawan hukum merusak, menghancurkan, membuat tidak dapat dipakai, atau menghilangkan Barang yang gedung atau seluruhnya milik orang lain, dipidana dengan pidana penjara paling lama 2 (dua) tahun 6 (enam) Bulan atau pidana denda paling banyak kategori IV.
+(2) Jika Tindak Pidana sebagaimana dimaksud pada ayat (1) mengakibatkan kerugian yang nilainya tidak lebih dari Rp500.000,00 (lima ratus ribu rupiah), pelaku Tindak Pidana dipidana dengan pidana penjara paling lama 6 (enam) Bulan atau pidana denda paling banyak kategori II.

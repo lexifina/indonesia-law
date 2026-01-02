@@ -1,0 +1,1 @@
+Setiap Orang yang menodai atau secara melawan hukum merusak atau menghancurkan makam atau tanda-tanda yang ada di atas makam, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori II.

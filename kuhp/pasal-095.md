@@ -1,0 +1,8 @@
+(1) Pidana tambahan berupa pencabutan izin dikenakan kepada pelaku dan pembantu Tindak Pidana yang melakukan Tindak Pidana yang berkaitan dengan izin yang dimiliki.
+(2) Pencabutan izin sebagaimana dimaksud pada ayat (1) dilakukan dengan mempertimbangkan:
+a. keadaan yang menyertai Tindak Pidana yang dilakukan;
+b. keadaan yang menyertai pelaku dan pembantu Tindak Pidana; dan
+c. keterkaitan kepemilikan izin dengan usaha atau kegiatan yang dilakukan.
+(3) Dalam hal dijatuhi pidana penjara, pidana tutupan, atau pidana pengawasan untuk waktu tertentu, pencabutan izin dilakukan paling singkat 2 (dua) tahun dan paling lama 5 (lima) tahun lebih lama dari pidana pokok yang dijatuhkan.
+(4) Dalam hal dijatuhi pidana denda, pencabutan izin berlaku paling singkat 1 (satu) tahun dan paling lama 9 (lima) tahun.
+(5) Pidana pencabutan izin mulai berlaku pada tanggal putusan pengadilan telah memperoleh kekuatan hukum tetap.

@@ -1,0 +1,2 @@
+(1) Setiap Orang sebagaimana dimaksud dalam Pasal 486, Pasal 488, atau Pasal 489, dapat dijatuhi pidana tambahan berupa pengumuman putusan hakim sebagaimana dimaksud dalam Pasal 66 ayat (1) huruf c dan pencabutan hak satu atau lebih sebagaimana dimaksud dalam Pasal 86.
+(2) Jika Tindak Pidana sebagaimana dimaksud pada ayat (1) dilakukan dalam menjalankan profesinya, pelaku dapat dijatuhi pidana tambahan berupa pencabutan hak sebagaimana dimaksud dalam Pasal 86 huruf f.

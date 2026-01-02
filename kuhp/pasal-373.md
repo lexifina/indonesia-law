@@ -1,0 +1,3 @@
+(1) Setiap Orang yang berdasarkan ketentuan peraturan perundang-undangan harus memberikan keterangan di atas sumpah atau keterangan tersebut menimbulkan akibat hukum, memberikan keterangan palsu di atas sumpah, baik dengan lisan maupun tulisan, yang dilakukan sendiri atau oleh kuasanya yang khusus ditunjuk untuk itu, dipidana dengan pidana penjara paling lama 7 (tujuh) tahun.
+(2) Disamakan dengan sumpah sebagaimana dimaksud pada ayat (1) adalah janji atau pernyataan yang menguatkan yang diharuskan berdasarkan ketentuan peraturan perundang-undangan atau yang menjadi pengganti sumpah.
+(3) Setiap Orang sebagaimana dimaksud pada ayat (1) dapat dijatuhi pidana tambahan berupa pencabutan hak sebagaimana dimaksud dalam Pasal 86 huruf a, huruf b, huruf c, dan/atau huruf d.

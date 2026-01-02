@@ -1,0 +1,1 @@
+Setiap Orang yang melakukan Makar dengan maksud untuk menghapuskan atau mengubah dengan cara tidak sah bentuk pemerintahan yang ada dalam negara sahabat, dipidana dengan pidana penjara paling lama 3 (tiga) tahun 6 (enam) Bulan atau pidana denda paling banyak kategori IV.

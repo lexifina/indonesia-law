@@ -1,0 +1,1 @@
+Ketentuan pidana dalam Undang-Undang berlaku bagi Setiap Orang yang melakukan Tindak Pidana di luar wilayah Negara Kesatuan Republik Indonesia yang penuntutannya diambil alih oleh Pemerintah Indonesia atas dasar suatu perjanjian internasional yang memberikan kewenangan kepada Pemerintah Indonesia untuk melakukan penuntutan pidana.

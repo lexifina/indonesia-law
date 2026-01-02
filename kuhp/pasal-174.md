@@ -1,0 +1,1 @@
+Kapal adalah kendaraan air dengan bentuk dan jenis apa pun, yang digerakkan dengan tenaga mekanik, tenaga angin, atau ditunda, termasuk kendaraan yang berdaya dukung dinamis, kendaraan di bawah permukaan air, serta alat apung dan bangunan terapung yang tidak berpindah-pindah.

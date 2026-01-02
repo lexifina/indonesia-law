@@ -1,0 +1,2 @@
+(1) Jika terjadi perbarengan beberapa Tindak Pidana yang harus dipandang sebagai Tindak Pidana yang berdiri sendiri dan diancam dengan pidana pokok yang sejenis, hanya dijatuhkan 1 (satu) pidana.
+(2) Maksimum pidana untuk perbarengan Tindak Pidana sebagaimana dimaksud pada ayat (1) adalah jumlah pidana yang diancamkan pada semua Tindak Pidana tersebut, tetapi tidak melebihi pidana yang terberat ditambah 1/3 (satu per tiga).

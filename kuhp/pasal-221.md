@@ -1,0 +1,1 @@
+Setiap Orang yang melakukan Makar dengan maksud untuk melepaskan wilayah negara sahabat, baik seluruh maupun sebagian dari kekuasaan pemerintah, dipidana dengan pidana penjara paling lama 4 (empat) tahun atau pidana denda paling banyak kategori V.

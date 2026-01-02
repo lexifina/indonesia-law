@@ -1,0 +1,1 @@
+Setiap Orang yang menyerang diri kepala negara sahabat dan wakil kepala negara sahabat yang tidak termasuk dalam ketentuan pidana yang lebih berat, dipidana dengan pidana penjara paling lama 3 (tiga) tahun 6 (enam) Bulan.

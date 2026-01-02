@@ -1,0 +1,2 @@
+(1) Setiap Orang yang melakukan komersialisasi dalam pelaksanaan transplantasi organ tubuh manusia atau jaringan tubuh manusia atau transfusi darah manusia, dipidana dengan pidana penjara paling lama 5 (lima) tahun atau pidana denda paling banyak kategori V.
+(2) Transplantasi organ tubuh manusia atau jaringan tubuh manusia atau transfusi darah manusia sebagaimana dimaksud pada ayat (1) hanya dapat dilakukan untuk tujuan kemanusiaan.

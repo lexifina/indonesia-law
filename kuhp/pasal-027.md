@@ -1,0 +1,1 @@
+Dalam hal Korban Tindak Pidana aduan meninggal dunia, pengaduan dapat dilakukan oleh Orang Tua, anak, suami, atau istri Korban, kecuali jika Korban sebelumnya secara tegas tidak menghendaki adanya penuntutan.

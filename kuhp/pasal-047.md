@@ -1,0 +1,1 @@
+Selain ketentuan sebagaimana dimaksud dalam Pasal 46, Tindak Pidana oleh Korporasi dapat dilakukan oleh pemberi perintah, pemegang kendali, atau pemilik manfaat Korporasi yang berada di luar struktur organisasi, tetapi dapat mengendalikan Korporasi.

@@ -1,0 +1,6 @@
+(1) Dipidana dengan pidana penjara paling lama 4 (empat) tahun atau pidana denda paling banyak kategori V, Setiap Orang yang:
+a. membubuhi cap atau tanda lain selain sebagaimana dimaksud dalam Pasal 384 dan Pasal 385, sesuai dengan ketentuan peraturan perundang-undangan harus atau boleh dibubuhkan pada Barang atau bungkusnya secara palsu atau memalsukan cap atau tanda lain yang asli dengan maksud untuk memakai atau meminta orang lain memakai Barang tersebut seolah-olah cap atau tanda lain tersebut asli atau tidak dipalsu;
+b. membubuhi cap atau tanda lain pada Barang atau bungkusnya dengan memakai cap yang asli secara melawan hukum dengan maksud untuk memakai atau meminta orang lain memakai Barang tersebut; atau
+c. memakai cap atau tanda lain asli untuk Barang atau bungkusnya, padahal cap atau tanda lain tersebut bukan untuk Barang atau bungkus tersebut, dengan maksud untuk memakainya seolah-olah cap atau tanda lain tersebut ditentukan untuk Barang itu.
+(2) Setiap Orang sebagaimana dimaksud pada ayat (1) dapat dijatuhi pidana tambahan berupa pembayaran ganti kerugian sebagaimana dimaksud dalam Pasal 66 ayat (1) huruf d.
+(3) Tindak Pidana sebagaimana dimaksud pada ayat (1), tidak dituntut kecuali atas dasar pengaduan pihak yang mereknya dipalsukan.

@@ -1,0 +1,2 @@
+(1) Setiap Orang yang menggabungkan diri dalam organisasi yang bertujuan melakukan Tindak Pidana atau organisasi yang dilarang berdasarkan Undang-Undang atau putusan pengadilan yang telah memperoleh kekuatan hukum tetap, dipidana dengan pidana penjara paling lama 5 (lima) tahun atau pidana denda paling banyak kategori V.
+(2) Pendiri atau pengurus organisasi sebagaimana dimaksud pada ayat (1) pidananya dapat ditambah 1/3 (satu per tiga).

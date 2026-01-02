@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum menghancurkan atau membuat tidak dapat dipakai bangunan gedung untuk sarana, prasarana, dan/atau fasilitas pelayanan publik, dipidana dengan pidana penjara paling lama 6 (enam) tahun atau pidana denda paling banyak kategori V.

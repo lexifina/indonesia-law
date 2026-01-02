@@ -1,0 +1,3 @@
+(1) Jika putusan pengadilan yang telah memperoleh kekuatan hukum tetap menyatakan orang yang dihina bersalah atas hal yang dituduhkan sebagaimana dimaksud dalam Pasal 434, tidak dapat dipidana karena fitnah.
+(2) Jika dengan putusan pengadilan yang telah memperoleh kekuatan hukum tetap orang yang dihina dibebaskan dari hal yang dituduhkan, putusan tersebut dianggap sebagai bukti sempurna bahwa hal yang dituduhkan tersebut tidak benar.
+(3) Jika penuntutan pidana terhadap yang dihina telah dimulai karena hal yang dituduhkan padanya, penuntutan karena fitnah ditangguhkan sampai ada putusan pengadilan yang telah memperoleh kekuatan hukum tetap mengenai hal yang dituduhkan.

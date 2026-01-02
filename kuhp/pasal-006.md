@@ -1,0 +1,1 @@
+Ketentuan pidana dalam Undang-Undang berlaku bagi Setiap Orang yang berada di luar wilayah Negara Kesatuan Republik Indonesia yang melakukan Tindak Pidana menurut hukum internasional yang telah ditetapkan sebagai Tindak Pidana dalam Undang-Undang.

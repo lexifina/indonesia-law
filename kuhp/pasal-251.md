@@ -1,0 +1,2 @@
+(1) Setiap Orang yang memberi obat atau meminta seorang perempuan untuk menggunakan obat dengan memberitahukan atau menimbulkan harapan bahwa obat tersebut dapat mengakibatkan gugurnya kandungan, dipidana dengan pidana penjara paling lama 4 (empat) tahun atau pidana denda paling banyak kategori IV.
+(2) Jika Setiap Orang sebagaimana dimaksud pada ayat (1) melakukan perbuatan tersebut dalam menjalankan profesinya dapat dijatuhi pidana tambahan berupa pencabutan hak sebagaimana dimaksud dalam Pasal 86 huruf f.

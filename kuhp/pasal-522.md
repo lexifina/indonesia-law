@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum merusak bangunan gedung untuk sarana, prasarana, dan/atau fasilitas pelayanan publik, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.

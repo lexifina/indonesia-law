@@ -1,0 +1,2 @@
+(1) Setiap Orang yang membuat gaduh di dekat Ruang sidang pengadilan pada saat sidang berlangsung dan tidak pergi sesudah diperintahkan sampai 3 (tiga) kali oleh atau atas nama petugas yang berwenang, dipidana dengan pidana denda paling banyak kategori I.
+(2) Setiap Orang yang membuat gaduh dalam sidang pengadilan dan tidak pergi sesudah diperintahkan sampai 3 (tiga) kali oleh atau atas nama hakim, dipidana dengan pidana penjara paling lama 6 (enam) Bulan atau pidana denda paling banyak kategori II.

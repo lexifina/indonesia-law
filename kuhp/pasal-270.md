@@ -1,0 +1,1 @@
+Setiap Orang yang mengubur, menyembunyikan, membawa, atau menghilangkan jenazah untuk menyembunyikan kematian atau kelahirannya, dipidana dengan pidana penjara paling lama 1 (satu) tahun 6 (enam) Bulan atau pidana denda paling banyak kategori II.

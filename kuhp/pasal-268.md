@@ -1,0 +1,1 @@
+Setiap Orang yang merintangi, menghalang-halangi, atau mengganggu jalan Masuk ke pemakaman, pengangkutan jenazah ke pemakaman, atau upacara pemakaman jenazah, dipidana dengan pidana denda paling banyak kategori II.

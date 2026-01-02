@@ -1,0 +1,1 @@
+Setiap Orang yang tanpa hak menggunakan atau mengakses Komputer atau sistem elektronik dengan cara apa pun, dengan maksud memperoleh, mengubah, merusak, atau menghilangkan informasi milik pemerintah yang karena statusnya harus dirahasiakan atau dilindungi, dipidana dengan pidana penjara paling lama 12 (dua belas) tahun atau pidana denda paling banyak kategori VII.

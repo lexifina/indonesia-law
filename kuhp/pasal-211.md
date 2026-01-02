@@ -1,0 +1,1 @@
+Warga negara Indonesia yang dengan sukarela menjadi tentara asing yang sedang berperang dengan Negara Kesatuan Republik Indonesia atau kemungkinan akan menghadapi Perang dengan Negara Kesatuan Republik Indonesia, dan jika Perang benar-benar terjadi, dipidana dengan pidana penjara paling lama 15 (lima belas) tahun.

@@ -1,0 +1,1 @@
+Setiap Orang yang dengan rencana terlebih dahulu merampas nyawa orang lain, dipidana karena pembunuhan berencana, dengan pidana mati atau pidana penjara seumur hidup atau pidana penjara paling lama 20 (dua puluh) tahun.

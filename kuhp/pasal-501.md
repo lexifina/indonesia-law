@@ -1,0 +1,1 @@
+Pemegang konosemen yang membebani salinan konosemen dengan perjanjian timbal balik dengan beberapa orang penerima Barang yang bersangkutan, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.

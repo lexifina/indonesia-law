@@ -1,0 +1,3 @@
+(1) Pidana tambahan berupa perampasan Barang tertentu sebagaimana dimaksud dalam Pasal 91 dapat dijatuhkan atas Barang yang tidak disita dengan menentukan bahwa Barang tersebut harus diserahkan atau diganti dengan sejumlah uang menurut taksiran hakim sesuai dengan harga pasar.
+(2) Dalam hal Barang yang tidak disita sebagaimana dimaksud pada ayat (1) tidak dapat diserahkan, Barang tersebut diganti dengan sejumlah uang menurut taksiran hakim sesuai dengan harga pasar.
+(3) Jika terpidana tidak mampu membayar seluruh atau sebagian harga pasar sebagaimana dimaksud pada ayat (2), diberlakukan ketentuan pidana pengganti untuk pidana denda.

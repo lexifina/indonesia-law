@@ -1,0 +1,1 @@
+Setiap Orang yang Di Muka Umum melakukan penghinaan terhadap orang yang sedang menjalankan atau memimpin penyelenggaraan ibadah atau upacara keagamaan atau kepercayaan, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori III.

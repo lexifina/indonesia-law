@@ -1,0 +1,1 @@
+Setiap Orang yang secara terang-terangan mempertunjukkan, menawarkan, menyiarkan tulisan, atau menunjukkan untuk dapat memperoleh alat pencegah kehamilan kepada Anak, dipidana dengan pidana denda paling banyak kategori I.

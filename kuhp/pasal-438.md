@@ -1,0 +1,1 @@
+Setiap Orang yang dengan suatu perbuatan menimbulkan persangkaan palsu terhadap orang lain bahwa orang tersebut melakukan suatu Tindak Pidana, dipidana karena menimbulkan persangkaan palsu, dengan pidana penjara paling lama 3 (tiga) tahun 6 (enam) Bulan atau pidana denda paling banyak kategori IV.

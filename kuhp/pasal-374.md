@@ -1,0 +1,1 @@
+Setiap Orang yang memalsu mata uang atau uang kertas yang dikeluarkan oleh negara, dengan maksud untuk mengedarkan atau meminta mengedarkan sebagai uang asli dan tidak dipalsu, dipidana dengan pidana penjara paling lama 10 (sepuluh) tahun atau pidana denda paling banyak kategori VII.

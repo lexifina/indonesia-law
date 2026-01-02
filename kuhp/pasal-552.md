@@ -1,0 +1,1 @@
+Nakhoda yang dengan maksud menguntungkan diri sendiri atau orang lain, membuat atau memberikan laporan palsu tentang kecelakaan Kapal yang dipimpinnya atau Kapal lain, dipidana dengan pidana penjara paling lama 6 (enam) tahun atau pidana denda paling banyak kategori IV.

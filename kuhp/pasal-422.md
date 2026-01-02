@@ -1,0 +1,2 @@
+(1) Setiap Orang yang menggerakkan, membawa, menempatkan, atau menyerahkan Anak kepada orang lain untuk melakukan percabulan, pelacuran, atau perbuatan melanggar kesusilaan lainnya, dipidana dengan pidana penjara paling lama 9 (sembilan) tahun.
+(2) Jika Tindak Pidana sebagaimana dimaksud pada ayat (1) dilakukan dengan menjanjikan Anak memperoleh pekerjaan atau janji lainnya, dipidana dengan pidana penjara paling lama 10 (sepuluh) tahun.

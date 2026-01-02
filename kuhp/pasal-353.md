@@ -1,0 +1,1 @@
+Setiap Orang yang mencegah, menghalang-halangi, atau menggagalkan tindakan yang dilakukan oleh seorang Pejabat yang berwenang untuk melaksanakan ketentuan peraturan perundang-undangan, dipidana dengan pidana penjara paling lama 9 (sembilan) Bulan atau pidana denda paling banyak kategori II.

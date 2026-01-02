@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum melakukan Kekerasan terhadap orang di dalam Pesawat Udara Dalam Penerbangan yang membahayakan keselamatan penerbangan tersebut, dipidana dengan pidana penjara paling lama 10 (sepuluh) tahun.

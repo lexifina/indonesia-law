@@ -1,0 +1,1 @@
+Nakhoda yang Kapalnya memakai tanda yang menimbulkan kesan seolah olah Kapal tersebut adalah Kapal perang Indonesia atau Kapal pemerintah selain Kapal perang yang bertugas di bidang keamanan dan ketertiban di laut atau Kapal pandu yang bekerja di perairan Indonesia, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori III.

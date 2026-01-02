@@ -1,0 +1,1 @@
+Seorang ibu yang membuang atau meninggalkan anaknya tidak lama setelah dilahirkan karena takut kelahiran anak tersebut diketahui oleh orang lain, dengan maksud agar anak tersebut ditemukan orang lain atau dengan maksud melepas tanggung jawabnya atas anak yang dilahirkan, dipidana 1/2 (satu per dua) dari pidana sebagaimana dimaksud dalam Pasal 429 ayat (1) dan ayat (2).

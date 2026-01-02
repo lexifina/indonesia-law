@@ -1,0 +1,4 @@
+Pengurus atau komisaris suatu Korporasi yang dinyatakan pailit atau yang diperintahkan melakukan pemberesan perusahaan, dipidana dengan pidana penjara paling lama 1 (satu) tahun 6 (enam) Bulan atau pidana denda paling banyak kategori VI, jika:
+a. memudahkan atau mengizinkan dilakukannya perbuatan yang bertentangan dengan anggaran dasarnya yang mengakibatkan kerugian Korporasi;
+b. dengan maksud menangguhkan kepailitan atau pemberesan perusahaan, memudahkan atau mengizinkan meminjam uang dengan syarat yang memberatkan, padahal diketahui bahwa keadaan pailit atau pemberesan perusahaan tersebut tidak dapat dicegah; atau
+c. tidak memenuhi kewajiban untuk menyelenggarakan pencatatan sebagaimana ditentukan dalam ketentuan peraturan perundang-undangan atau tidak dapat memperlihatkan catatan dalam keadaan yang sebenarnya.

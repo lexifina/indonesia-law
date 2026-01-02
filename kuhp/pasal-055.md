@@ -1,0 +1,1 @@
+Setiap Orang yang melakukan Tindak Pidana tidak dibebaskan dari pertanggungjawaban pidana berdasarkan alasan peniadaan pidana jika orang tersebut telah dengan sengaja menyebabkan terjadinya keadaan yang dapat menjadi alasan peniadaan pidana tersebut.

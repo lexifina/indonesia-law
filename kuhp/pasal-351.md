@@ -1,0 +1,1 @@
+Setiap Orang yang mengabaikan perintah atau petunjuk Pejabat yang berwenang yang diberikan untuk mencegah terjadinya kecelakaan dan menghindarkan kemacetan lalu lintas umum sewaktu ada pesta, pawai, atau keramaian semacam itu, dipidana dengan pidana denda paling banyak kategori II.

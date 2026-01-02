@@ -1,0 +1,1 @@
+Perintah jabatan yang diberikan tanpa wewenang tidak mengakibatkan hapusnya pidana, kecuali jika orang yang diperintahkan dengan iktikad baik mengira bahwa perintah tersebut diberikan dengan wewenang dan pelaksanaannya, termasuk dalam lingkup pekerjaannya.

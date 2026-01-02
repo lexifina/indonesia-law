@@ -1,0 +1,1 @@
+Surat adalah dokumen yang ditulis di atas kertas, termasuk juga dokumen atau data yang tertulis atau tersimpan dalam disket, pita magnetik, atau media penyimpan Komputer atau media penyimpan data elektronik lain.

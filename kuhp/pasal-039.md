@@ -1,0 +1,1 @@
+Setiap Orang yang pada waktu melakukan Tindak Pidana menyandang disabilitas mental yang dalam keadaan kekambuhan akut dan disertai gambaran psikotik dan/atau disabilitas intelektual derajat sedang atau berat tidak dapat dijatuhi pidana, tetapi dapat dikenai tindakan.

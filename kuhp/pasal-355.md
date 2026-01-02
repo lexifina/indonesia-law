@@ -1,0 +1,1 @@
+Setiap Orang yang mempergunakan suatu hak, yang diketahuinya bahwa hak tersebut telah dicabut berdasarkan putusan pengadilan, dipidana dengan pidana penjara paling lama 9 (sembilan) Bulan atau pidana denda paling banyak kategori II.

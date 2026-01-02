@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum menghancurkan atau merusak Barang muatan, perbekalan, atau Barang keperluan yang ada di Kapal, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.

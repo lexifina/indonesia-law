@@ -1,0 +1,1 @@
+Setiap Orang yang menyebabkan saksi, Korban, dan/atau keluarganya kehilangan pekerjaan karena saksi dan/atau Korban memberikan kesaksian yang benar dalam proses peradilan, dipidana dengan pidana penjara paling singkat 2 (dua) tahun dan paling lama 7 (tujuh) tahun dan pidara denda paling sedikit kategori III dan paling banyak kategori V.

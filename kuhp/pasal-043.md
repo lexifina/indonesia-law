@@ -1,0 +1,1 @@
+Setiap Orang yang melakukan pembelaan terpaksa yang melampaui batas yang langsung disebabkan keguncangan jiwa yang hebat karena serangan atau ancaman serangan seketika yang melawan hukum, tidak dipidana.

@@ -1,0 +1,1 @@
+Setiap Orang yang tanpa izin Presiden atau Pejabat yang diberi wewenang, mengajak warga negara Indonesia untuk menjadi anggota tentara asing, dipidana dengan pidana penjara paling lama 2 (dua) tahun atau pidana denda paling banyak kategori III.

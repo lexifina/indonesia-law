@@ -1,0 +1,1 @@
+Nakhoda Kapal Indonesia yang tidak memenuhi kewajiban untuk mencatat dan memberitahukan kelahiran atau kematian orang yang berada di Kapal selama waktu berlayar sesuai dengan ketentuan peraturan perundang-undangan, dipidana dengan pidana denda paling banyak kategori II.

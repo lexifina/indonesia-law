@@ -1,0 +1,1 @@
+Setiap Orang yang berkerumun atau berkelompok yang dapat menimbulkan kekacauan dan tidak pergi sesudah diperintahkan sampai 3 (tiga) kali oleh Pejabat yang berwenang atau atas namanya, dipidana dengan pidana denda paling banyak kategori II.

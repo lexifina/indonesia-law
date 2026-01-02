@@ -1,0 +1,1 @@
+Setiap Orang yang dengan Kekerasan atau Ancaman Kekerasan merintangi atau membubarkan rapat umum yang sah, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori II.

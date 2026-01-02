@@ -1,0 +1,4 @@
+(1) Dipidana dengan pidana penjara paling singkat 1 (satu) tahun dan paling lama 5 (lima) tahun dan pidana denda paling sedikit kategori III dan paling banyak kategori V, Setiap Orang yang:
+a. memberi atau menjanjikan sesuatu kepada pegawai negeri atau penyelenggara negara dengan maksud supaya pegawai negeri atau penyelenggara negara tersebut berbuat atau tidak berbuat sesuatu dalam jabatannya, yang bertentangan dengan kewajibannya; atau
+b. memberi sesuatu kepada pegawai negeri atau penyelenggara negara karena atau berhubungan dengan sesuatu yang bertentangan dengan kewajiban, yang dilakukan atau tidak dilakukan dalam jabatannya.
+(2) Pegawai negeri atau penyelenggara negara yang menerima pemberian atau janji sebagaimana dimaksud pada ayat (1), dipidana dengan pidana penjara paling singkat 1 (satu) tahun dan paling lama 6 (enam) tahun dan pidana denda paling sedikit kategori III dan paling banyak kategori V.

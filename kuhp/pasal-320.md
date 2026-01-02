@@ -1,0 +1,4 @@
+Setiap Orang yang karena kealpaannya mengakibatkan suatu Bangunan Listrik rusak, hancur, tidak dapat dipakai, mengakibatkan jalannya atau bekerjanya bangunan tersebut terganggu, atau usaha untuk menjaga keselamatan atau memperbaiki bangunan tersebut gagal atau sulit, dipidana dengan:
+a. pidana penjara paling lama 1 (satu) tahun 6 (enam) Bulan atau pidana denda paling banyak kategori III, jika perbuatan tersebut mengakibatkan rintangan atau kesulitan dalam mengalirkan listrik untuk kepentingan umum atau menimbulkan bahaya umum bagi orang atau Barang;
+b. pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV, jika perbuatan tersebut mengakibatkan Luka Berat; atau
+c. pidana penjara paling lama 5 (lima) tahun atau pidana denda paling banyak kategori V, jika perbuatan tersebut mengakibatkan matinya orang.

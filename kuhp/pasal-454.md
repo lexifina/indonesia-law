@@ -1,0 +1,5 @@
+(1) Setiap Orang yang membawa pergi Anak di luar kemauan Orang Tua atau walinya, tetapi dengan persetujuan Anak itu sendiri, dengan maksud untuk memastikan penguasaan terhadap Anak tersebut, baik di dalam maupun di luar perkawinan, dipidana karena melarikan Anak, dengan pidana penjara paling lama 7 (tujuh) tahun.
+(2) Setiap Orang yang membawa pergi perempuan dengan tipu muslihat, Kekerasan atau Ancaman Kekerasan, dengan maksud untuk memastikan penguasaan terhadap perempuan tersebut, baik di dalam maupun di luar perkawinan, dipidana karena melarikan perempuan dengan pidana penjara paling lama 9 (sembilan) tahun.
+(3) Tindak Pidana sebagaimana dimaksud pada ayat (1) hanya dapat dituntut atas pengaduan Anak, Orang Tua, atau walinya.
+(4) Tindak Pidana sebagaimana dimaksud pada ayat (2) hanya dapat dituntut atas pengaduan perempuan atau suaminya.
+(5) Jika yang membawa lari mengawini perempuan yang dibawa pergi dan perkawinan tersebut dilaksanakan sesuai dengan ketentuan peraturan perundang-undangan mengenai perkawinan, tidak dapat dijatuhi pidana sebelum perkawinan tersebut dinyatakan batal.

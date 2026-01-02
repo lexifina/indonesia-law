@@ -1,0 +1,3 @@
+Dipidana dengan pidana penjara paling lama 2 (dua) tahun atau pidana denda paling banyak kategori IV, Setiap Orang yang:
+a. memberikan fasilitas kepada orang yang diketahuinya tidak mempunyai wewenang, mempunyai niat atau sedang mencoba untuk mengetahui seluruh atau sebagian Surat, peta bumi, rencana, gambar, atau Barang yang bersifat rahasia negara sebagaimana yang dimaksud dalam Pasal 205 atau untuk mengetahui letak, bentuk, susunan persenjataan, perbekalan, perlengkapan amunisi atau kekuatan orang dari proyek pertahanan negara atau suatu hal lain yang bersangkutan dengan kepentingan pertahanan negara; atau
+b. menyembunyikan Barang yang diketahuinya akan digunakan untuk melakukan perbuatan sebagaimana dimaksud dalam huruf a.

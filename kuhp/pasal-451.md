@@ -1,0 +1,1 @@
+Setiap Orang yang menahan orang dengan Kekerasan atau Ancaman Kekerasan dengan maksud untuk menempatkan orang tersebut secara melawan hukum di bawah kekuasaannya atau kekuasaan orang lain atau untuk menempatkan orang tersebut dalam keadaan tidak berdaya, dipidana karena penyanderaan, dengan pidana penjara paling lama 12 (dua belas) tahun.

@@ -1,0 +1,1 @@
+Setiap Orang yang dipanggil di muka Pejabat yang berwenang tanpa alasan yang sah tidak datang menghadap atau dalam hal yang diizinkan tidak meminta wakilnya menghadap dalam perkara orang yang belum dewasa, dipidana dengan pidana denda paling banyak kategori II.

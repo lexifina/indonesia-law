@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum merusak, menghancurkan, atau membuat tidak dapat dipakai Pesawat Udara yang sebagian atau seluruhnya milik orang lain, dipidana dengan pidana penjara paling lama 9 (sembilan) tahun.

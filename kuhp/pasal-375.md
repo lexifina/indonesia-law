@@ -1,0 +1,3 @@
+(1) Setiap Orang yang menyimpan secara fisik dengan cara apa pun yang diketahuinya merupakan mata uang palsu sebagaimana dimaksud dalam Pasal 374, dipidana dengan pidana penjara paling lama 10 (sepuluh) tahun dan pidana denda paling banyak kategori VII.
+(2) Setiap Orang yang mengedarkan dan/atau membelanjakan mata uang yang diketahuinya palsu sebagaimana dimaksud dalam Pasal 374, dipidana dengan pidana penjara paling lama 15 (lima belas) tahun dan pidana denda paling banyak kategori VIII.
+(3) Setiap Orang yang membawa atau memasukkan mata uang ke dalam dan/atau ke luar wilayah Negara Kesatuan Republik Indonesia sebagaimana dimaksud dalam Pasal 374, dipidana dengan pidana penjara paling lama 15 (lima belas) tahun dan pidana denda paling banyak kategori VIII.

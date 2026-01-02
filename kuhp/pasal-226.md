@@ -1,0 +1,1 @@
+Setiap Orang yang Di Muka Umum menyerang kehormatan atau harkat dan martabat diri kepala negara sahabat yang sedang menjalankan tugas kenegaraan di Negara Kesatuan Republik Indonesia, dipidana dengan pidana penjara paling lama 2 (dua) tahun atau pidana denda paling banyak kategori III.

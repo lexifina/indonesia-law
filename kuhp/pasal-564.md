@@ -1,0 +1,1 @@
+Nakhoda Kapal Indonesia yang tidak dalam keadaan terpaksa atau bertentangan dengan hukum yang berlaku baginya membuang Barang muatan Kapalnya, dipidana dengan pidana penjara paling lama 2 (dua) tahun atau pidana denda paling banyak kategori III.

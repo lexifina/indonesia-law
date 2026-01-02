@@ -1,0 +1,3 @@
+Dipidana dengan pidana penjara paling lama 1 (satu) tahun 6 (enam) Bulan, Pejabat yang:
+a. melampaui kewenangannya atau tanpa memperhatikan tata cara sesuai dengan ketentuan peraturan perundang-undangan, memaksa Masuk ke dalam rumah atau ruangan atau pekarangan yang tertutup yang dipakai oleh orang lain, atau secara melawan hukum berada di tempat tersebut, tidak segera pergi setelah ditegur oleh atau atas nama orang yang berhak; atau
+b. pada waktu menggeledah rumah melampaui kewenangannya atau tanpa memperhatikan tata cara sesuai dengan ketentuan peraturan perundang-undangan, memeriksa, menyita Surat, buku, atau Barang bukti lainnya.

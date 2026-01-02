@@ -1,0 +1,2 @@
+(1) Setiap warga negara Indonesia yang ikut serta melakukan Perang atau latihan militer atau bergabung dalam suatu organisasi tertentu untuk melakukan Perang atau latihan militer di luar negeri, dipidana dengan pidana penjara paling lama 6 (enam) tahun.
+(2) Ketentuan sebagaimana dimaksud pada ayat (1) tidak berlaku bagi anggota Tentara Nasional Indonesia dan Kepolisian Negara Republik Indonesia yang mendapat persetujuan Pemerintah Indonesia.

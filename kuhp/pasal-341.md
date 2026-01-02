@@ -1,0 +1,1 @@
+Setiap Orang yang diwajibkan menjaga anak, membiarkan tanpa pengawasan, atau meninggalkan anak tersebut tanpa dijaga sehingga dapat menimbulkan bahaya bagi anak tersebut atau orang lain, dipidana dengan pidana penjara paling lama 6 (enam) Bulan atau pidana denda paling banyak kategori II.

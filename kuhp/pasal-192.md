@@ -1,0 +1,1 @@
+Setiap Orang yang melakukan Makar dengan maksud supaya sebagian atau seluruh wilayah Negara Kesatuan Republik Indonesia jatuh kepada kekuasaan asing atau untuk memisahkan diri dari Negara Kesatuan Republik Indonesia, dipidana dengan pidana mati, pidana penjara seumur hidup, atau pidana penjara paling lama 20 (dua puluh) tahun.

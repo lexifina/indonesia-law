@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum menempatkan atau menyebabkan ditempatkannya dengan cara apa pun alat atau bahan di dalam Pesawat Udara Dalam Dinas Penerbangan yang dapat menghancurkan atau mengakibatkan kerusakan Pesawat Udara tersebut sehingga tidak dapat terbang atau membahayakan keselamatan penerbangan, dipidana dengan pidana penjara paling lama 10 (sepuluh) tahun.

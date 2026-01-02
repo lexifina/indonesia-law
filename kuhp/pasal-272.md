@@ -1,0 +1,3 @@
+(1) Setiap Orang yang memalsukan atau membuat palsu ijazah atau sertifikat kompetensi dan dokumen yang menyertainya, dipidana dengan pidana penjara paling lama 6 (enam) tahun atau pidana denda paling banyak kategori V.
+(2) Setiap Orang yang menggunakan ijazah, sertifikat kompetensi, gelar akademik, profesi, atau vokasi palsu, dipidana dengan pidana penjara paling lama 6 (enam) tahun atau pidana denda paling banyak kategori V.
+(3) Setiap Orang yang menerbitkan dan/atau memberikan ijazah, sertifikat kompetensi, gelar akademik, profesi, atau vokasi palsu dipidana dengan pidana penjara paling lama 10 (sepuluh) tahun atau pidana denda paling banyak kategori VI.

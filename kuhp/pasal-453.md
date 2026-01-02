@@ -1,0 +1,2 @@
+(1) Setiap Orang yang menyembunyikan Anak yang ditarik atau menarik sendiri dari kekuasaan sesuai dengan ketentuan peraturan perundang-undangan ditentukan atas dirinya atau dari pengawasan orang yang berwenang untuk itu, atau menariknya dari penyidikan Pejabat yang berwenang, dipidana dengan pidana penjara paling lama 4 (empat) tahun atau pidana denda paling banyak kategori III.
+(2) Jika perbuatan sebagaimana dimaksud pada ayat (1) dilakukan terhadap anak di bawah umur 12 (dua belas) tahun, dipidana dengan pidana penjara paling lama 7 (tujuh) tahun.

@@ -1,0 +1,1 @@
+Setiap Orang yang melangsungkan perkawinan dan tidak memberitahukan kepada pihak lain bahwa baginya ada penghalang yang sah, dan berdasarkan penghalang tersebut perkawinan kemudian dinyatakan tidak sah, dipidana dengan pidana penjara paling lama 6 (enam) tahun atau pidana denda paling banyak kategori IV.

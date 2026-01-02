@@ -1,0 +1,2 @@
+(1) Setiap Orang yang menarik Anak dari kekuasaan sesuai dengan ketentuan peraturan perundang-undangan yang ditentukan atas dirinya atau dari pengawasan orang yang berwenang untuk itu, dipidana dengan pidana penjara paling lama 6 (enam) tahun atau pidana denda paling banyak kategori IV.
+(2) Jika perbuatan sebagaimana dimaksud pada ayat (1) dilakukan dengan tipu muslihat, Kekerasan atau Ancaman Kekerasan, atau terhadap anak yang belum berumur 12 (dua belas) tahun, dipidana dengan pidana penjara paling lama 8 (delapan) tahun atau pidana denda paling banyak kategori V.

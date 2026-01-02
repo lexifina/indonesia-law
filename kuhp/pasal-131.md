@@ -1,0 +1,2 @@
+(1) Jika Setiap Orang telah dijatuhi pidana dan kembali dinyatakan bersalah melakukan Tindak Pidana lain sebelum putusan pidana itu dijatuhkan, pidana yang terdahulu diperhitungkan terhadap pidana yang akan dijatuhkan dengan menggunakan aturan perbarengan sebagaimana dimaksud dalam Pasal 125 sampai dengan Pasal 130, seperti jika Tindak Pidana itu diadili secara bersama.
+(2) Jika pidana yang dijatuhkan sebagaimana dimaksud pada ayat (1) telah mencapai maksimum pidana, hakim cukup menyatakan bahwa terdakwa bersalah tanpa perlu diikuti pidana.

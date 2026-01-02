@@ -1,0 +1,1 @@
+Setiap Orang yang menyiarkan berita yang tidak pasti, berlebih-lebihan, atau yang tidak lengkap sedangkan diketahuinya atau patut diduga, bahwa berita demikian dapat mengakibatkan kerusuhan di masyarakat, dipidana dengan pidana penjara paling lama 2 (dua) tahun atau pidana denda paling banyak kategori III.

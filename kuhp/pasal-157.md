@@ -1,0 +1,1 @@
+Ancaman Kekerasan adalah setiap perbuatan berupa ucapan, tulisan, gambar, simbol, atau gerakan tubuh, baik dengan maupun tanpa menggunakan sarana dalam bentuk elektronik atau nonelektronik yang dapat menimbulkan rasa takut, cemas, atau khawatir akan dilakukannya Kekerasan.

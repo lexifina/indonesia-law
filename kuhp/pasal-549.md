@@ -1,0 +1,1 @@
+Nakhoda Kapal Indonesia yang membuat atau meminta orang lain untuk membuat Surat keterangan Kapal yang diketahui bahwa isi Surat keterangan tersebut bertentangan dengan yang sebenarnya, dipidana dengan pidana penjara paling lama 5 (lima) tahun.

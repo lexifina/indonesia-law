@@ -1,0 +1,1 @@
+Setiap Orang yang tidak memenuhi kewajiban sesuai dengan ketentuan peraturan perundang-undangan untuk melaporkan kepada Pejabat yang berwenang tentang kelahiran, perkawinan, perceraian, atau kematian, dipidana dengan pidana denda paling banyak kategori II.

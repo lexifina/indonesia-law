@@ -1,0 +1,1 @@
+Pejabat suatu lembaga yang bertugas di bidang pengangkutan Surat atau Barang yang membiarkan orang lain melakukan Tindak Pidana sebagaimana dimaksud dalam Pasal 537 dan/atau membantu orang lain tersebut dalam melakukan perbuatannya, dipidana dengan pidana penjara paling lama 5 (lima) tahun atau pidana denda paling banyak kategori IV.

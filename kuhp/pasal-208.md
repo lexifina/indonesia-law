@@ -1,0 +1,4 @@
+Dipidana dengan pidana penjara paling lama 4 (empat) tahun, Setiap Orang yang:
+a. melihat atau mempelajari Surat, peta bumi, rencana, gambar, atau Barang yang bersifat rahasia negara sebagaimana dimaksud dalam Pasal 205, seluruh atau sebagian yang diketahuinya atau patut diduga bahwa Surat, peta bumi, rencana, gambar, atau Barang yang bersifat rahasia negara tersebut tidak boleh diketahuinya;
+b. membuat atau meminta membuat cetakan, gambar, atau tiruan dari Surat, peta bumi, rencana, gambar, atau Barang yang bersifat rahasia negara sebagaimana dimaksud dalam huruf a; atau
+c. tidak menyerahkan Surat, peta bumi, rencana, gambar, atau Barang yang bersifat rahasia negara tersebut kepada Pejabat yang berwenang padahal Surat, peta bumi, rencana, gambar, atau Barang yang bersifat rahasia negara tersebut jatuh ke tangannya.

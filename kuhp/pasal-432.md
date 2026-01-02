@@ -1,0 +1,1 @@
+Setiap Orang yang ketika menyaksikan ada orang yang sedang menghadapi bahaya maut tidak memberi pertolongan yang dapat diberikan kepadanya tanpa menimbulkan bahaya bagi dirinya atau orang lain, jika orang tersebut mati, dipidana dengan pidana penjara paling lama 6 (enam) Bulan atau pidana denda paling banyak kategori II.

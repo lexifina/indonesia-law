@@ -1,0 +1,2 @@
+(1) Jika narapidana yang menjalani pidana penjara seumur hidup telah menjalani pidana penjara paling singkat 15 (lima belas) tahun, pidana penjara seumur hidup dapat diubah menjadi pidana penjara 20 (dua puluh) tahun dengan Keputusan Presiden setelah mendapatkan pertimbangan Mahkamah Agung.
+(2) Ketentuan mengenai tata cara perubahan pidana penjara seumur hidup menjadi pidana penjara 20 (dua puluh) tahun sebagaimana dimaksud pada ayat (1) diatur dengan Peraturan Pemerintah.

@@ -1,0 +1,1 @@
+Nakhoda Kapal Indonesia yang tanpa alasan yang sah menolak permintaan untuk mengangkut tersangka, terdakwa, terpidana, narapidana, dan/atau Barang yang berhubungan dengan perkara pidana sesuai dengan ketentuan peraturan perundang-undangan, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori III.

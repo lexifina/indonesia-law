@@ -1,0 +1,1 @@
+Setiap Orang yang Di Muka Umum menyatakan perasaan permusuhan, kebencian, atau penghinaan terhadap satu atau beberapa golongan atau kelompok penduduk Indonesia berdasarkan ras, kebangsaan, etnis, warna kulit, jenis kelamin, disabilitas mental, atau disabilitas fisik, dipidana dengan pidana penjara paling lama 3 (tiga) tahun atau pidana denda paling banyak kategori IV.

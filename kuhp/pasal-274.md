@@ -1,0 +1,2 @@
+(1) Setiap Orang yang tanpa izin mengadakan pesta atau keramaian untuk umum di jalan umum atau di tempat umum, dipidana dengan pidana denda paling banyak kategori II.
+(2) Setiap Orang yang melakukan Tindak Pidana sebagaimana dimaksud pada ayat (1) yang mengakibatkan terganggunya kepentingan umum, menimbulkan keonaran, atau huru-hara dalam masyarakat, dipidana dengan pidana penjara paling lama 6 (enam) Bulan atau pidana denda paling banyak kategori II.

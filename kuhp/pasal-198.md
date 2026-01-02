@@ -1,0 +1,1 @@
+Setiap Orang yang ditugaskan oleh Pemerintah Indonesia untuk mengadakan perundingan dengan negara asing bertindak merugikan pertahanan negara, dipidana dengan pidana penjara paling lama 12 (dua belas) tahun.

@@ -1,0 +1,1 @@
+Setiap Orang yang Di Muka Umum dengan lisan atau tulisan menawarkan untuk memberi keterangan, kesempatan, atau sarana untuk melakukan Tindak Pidana, dipidana dengan pidana penjara paling lama 1 (satu) tahun atau pidana denda paling banyak kategori II.

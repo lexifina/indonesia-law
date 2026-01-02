@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum memberitahukan keberadaan saksi dan/atau Korban yang sedang dilindungi dalam suatu tempat kediaman sementara atau tempat kediaman baru, dipidana dengan pidana penjara paling singkat 2 (dua) tahun dan paling lama 7 (tujuh) tahun dan pidana denda paling sedikit kategori III dan paling banyak kategori V.

@@ -1,0 +1,3 @@
+(1) Dokter, bidan, paramedis, atau apoteker yang melakukan Tindak Pidana sebagaimana dimaksud dalam Pasal 464, pidananya dapat ditambah 1/3 (satu per tiga).
+(2) Dokter, bidan, paramedis, atau apoteker yang melakukan Tindak Pidana sebagaimana dimaksud pada ayat (1) dapat dijatuhi pidana tambahan berupa pencabutan hak sebagaimana dimaksud dalam Pasal 86 huruf a dan huruf f.
+(3) Dokter, bidan, paramedis, atau apoteker yang melakukan aborsi karena indikasi kedaruratan medis atau terhadap Korban Tindak Pidana perkosaan atau Tindak Pidana kekerasan seksual lain yang menyebabkan kehamilan sebagaimana dimaksud dalam Pasal 463 ayat (2), tidak dipidana.

@@ -1,0 +1,1 @@
+Seorang komandan Tentara Nasional Indonesia yang menolak atau mengabaikan permintaan pemberian bantuan kekuatan di bawah perintahnya ketika diminta oleh pejabat yang berwenang menurut Undang-Undang, dipidana dengan pidana penjara paling lama 4 (empat) tahun.

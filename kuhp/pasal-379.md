@@ -1,0 +1,1 @@
+Setiap Orang yang menjual, membeli, mendistribusikan, membuat, atau mempunyai persediaan bahan atau benda yang diketahuinya digunakan atau akan digunakan untuk memalsu atau mengurangi nilai mata uang atau untuk memalsu uang kertas yang dikeluarkan oleh negara, dipidana dengan pidana penjara paling lama 6 (enam) tahun atau pidana denda paling banyak kategori V.

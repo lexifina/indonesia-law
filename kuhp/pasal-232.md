@@ -1,0 +1,1 @@
+Setiap Orang yang dengan Kekerasan atau Ancaman Kekerasan membubarkan rapat lembaga legislatif dan/atau badan pemerintah atau memaksa lembaga dan/atau badan tersebut agar mengambil atau tidak mengambil suatu keputusan, atau mengusir pimpinan atau anggota rapat tersebut, dipidana dengan pidana penjara paling lama 6 (enam) tahun.

@@ -1,0 +1,2 @@
+(1) Setiap Orang yang menghubungkan atau memudahkan orang lain berbuat cabul atau bersetubuh dengan orang yang diketahui atau patut diduga Anak, dipidana dengan pidana penjara paling lama 7 (tujuh) tahun.
+(2) Jika Tindak Pidana sebagaimana dimaksud pada ayat (1) dilakukan terhadap Anak kandung, Anak tiri, Anak angkat, atau Anak di bawah pengawasannya yang dipercayakan padanya untuk diasuh, dipidana dengan pidana penjara paling lama 9 (sembilan) tahun.

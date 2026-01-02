@@ -1,0 +1,1 @@
+Setiap Orang yang secara melawan hukum mengenakan tanda kepangkatan yang bukan haknya, melakukan perbuatan jabatan yang tidak dijabatnya, atau melakukan perbuatan jabatan yang sementara dihentikan baginya, dipidana dengan pidana penjara paling lama 2 (dua) tahun atau pidana denda paling banyak kategori III.

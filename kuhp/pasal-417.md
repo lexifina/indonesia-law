@@ -1,0 +1,1 @@
+Setiap Orang yang memberi atau berjanji akan memberi hadiah menyalahgunakan wibawa yang timbul dari hubungan keadaan atau dengan penyesatan menggerakkan orang yang diketahui atau patut diduga Anak, untuk melakukan perbuatan cabul atau membiarkan terhadap dirinya dilakukan perbuatan cabul, dipidana dengan pidana penjara paling lama 9 (sembilan) tahun.

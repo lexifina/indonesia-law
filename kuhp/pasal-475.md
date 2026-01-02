@@ -1,0 +1,2 @@
+(1) Jika Tindak Pidana sebagaimana dimaksud dalam Pasal 474 dilakukan dalam menjalankan jabatan, mata pencaharian, atau profesi, pidananya dapat ditambah 1/3 (satu per tiga).
+(2) Setiap Orang sebagaimana dimaksud pada ayat (1) dapat juga dijatuhi pidana tambahan berupa pengumuman putusan hakim sebagaimana dimaksud dalam Pasal 66 ayat (1) huruf c dan pencabutan hak sebagaimana dimaksud dalam Pasal 86 huruf f.

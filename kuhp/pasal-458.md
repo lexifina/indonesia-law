@@ -1,0 +1,3 @@
+(1) Setiap Orang yang merampas nyawa orang lain, dipidana karena pembunuhan, dengan pidana penjara paling lama 15 (lima belas) tahun.
+(2) Jika Tindak Pidana sebagaimana dimaksud pada ayat (1) dilakukan terhadap ibu, Ayah, istri, suami, atau anaknya, pidananya dapat ditambah 1/3 (satu per tiga).
+(3) Pembunuhan yang diikuti, disertai, atau didahului oleh suatu Tindak Pidana yang dilakukan dengan maksud untuk mempersiapkan atau mempermudah pelaksanaannya, atau untuk melepaskan diri sendiri atau peserta lainnya dari pidana dalam hal tertangkap tangan, atau untuk memastikan penguasaan Barang yang diperolehnya secara melawan hukum, dipidana dengan pidana penjara seumur hidup atau pidana penjara paling lama 20 (dua puluh) tahun.

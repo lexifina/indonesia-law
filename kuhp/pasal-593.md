@@ -1,0 +1,1 @@
+Jika Tindak Pidana sebagaimana dimaksud dalam Pasal 591 yang nilai Barangnya tidak lebih dari Rp500.000,00 (lima ratus ribu rupiah), dipidana karena penadahan ringan, dengan pidana denda paling banyak kategori II.

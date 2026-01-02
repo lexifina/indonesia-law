@@ -1,0 +1,1 @@
+Di Muka Umum adalah di suatu tempat atau Ruang yang dapat dilihat, didatangi, diketahui, atau disaksikan oleh orang lain baik secara langsung maupun secara tidak langsung melalui media elektronik yang membuat publik dapat mengakses Informasi Elektronik atau dokumen elektronik.
