@@ -1,0 +1,23 @@
+The legal text is the Constitution of the Republic of Indonesia (Undang-Undang Dasar Negara Republik
+Indonesia Tahun 1945), as published by Mahkamah Konstitusi Republik Indonesia (Constitutional Court) in
+"Buku Saku UUD 1945 dan UU MK" (2020), https://pusdik.mkri.id, retrieved 29 October 2026.
+The publication states no reuse licence. Attribution: Mahkamah Konstitusi Republik Indonesia.
+
+Changes made by Lexifina: the text layer of the PDF was converted to one Markdown file per article,
+one paragraph or item per line; page numbers, chapter headings, footnote keys and amendment asterisks
+were removed; line wraps were joined. The wording of the law was not changed. The Constitutional Court
+does not endorse this repository.
+
+Lexifina's own contributions (the arrangement of the history, the commit messages, the tables and the
+tools) are dedicated to the public domain under CC0 1.0 Universal:
+https://creativecommons.org/publicdomain/zero/1.0/
+
+Penal Code (Kitab Undang-Undang Hukum Pidana, Undang-Undang Nomor 1 Tahun 2023): text recognised by OCR from the
+signed copy ("salinan") published by Peraturan BPK (JDIH BPK), https://peraturan.bpk.go.id/Download/287456,
+retrieved 30 October 2026. Statutes are not protected by copyright in Indonesia. Undang-Undang Nomor 28 Tahun
+2014 tentang Hak Cipta, Pasal 42: "Tidak ada Hak Cipta atas hasil karya berupa: a. hasil rapat terbuka lembaga
+negara; b. peraturan perundang-undangan; c. pidato kenegaraan atau pidato pejabat pemerintah; d. putusan
+pengadilan atau penetapan hakim; dan e. kitab suci atau simbol keagamaan." Attribution: Badan Pemeriksa
+Keuangan (BPK) / Sekretariat Negara. Changes made by Lexifina: OCR, then removal of page headers, footers and
+catchwords, joining of wrapped lines, restoration of list punctuation, and the hand corrections named in the
+README. The wording of the law was not otherwise changed.

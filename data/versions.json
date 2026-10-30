@@ -1,0 +1,73 @@
+{
+ "country": "ID",
+ "acts": [
+  {
+   "slug": "uud-1945",
+   "short": "UUD 1945",
+   "title": "Undang-Undang Dasar Negara Republik Indonesia Tahun 1945 (Constitution)",
+   "url": "https://pusdik.mkri.id/materi/materi_294_Buku%20Saku%20UUD%201945%20dan%20UU%20MK_2020.pdf",
+   "versions": [
+    {
+     "from": "1945-08-18",
+     "units": 43,
+     "source_url": "https://pusdik.mkri.id/materi/materi_294_Buku%20Saku%20UUD%201945%20dan%20UU%20MK_2020.pdf",
+     "sha256": "765cfac20d4426ed3e8ab2c8dd66ccedf270b26a9640c08c0b25230e7021e617"
+    },
+    {
+     "from": "2002-08-10",
+     "units": 78,
+     "source_url": "https://pusdik.mkri.id/materi/materi_294_Buku%20Saku%20UUD%201945%20dan%20UU%20MK_2020.pdf",
+     "sha256": "765cfac20d4426ed3e8ab2c8dd66ccedf270b26a9640c08c0b25230e7021e617"
+    }
+   ]
+  },
+  {
+   "slug": "kuhp",
+   "short": "KUHP",
+   "title": "Kitab Undang-Undang Hukum Pidana (Penal Code), UU 1/2023",
+   "url": "https://peraturan.bpk.go.id/Download/287456",
+   "versions": [
+    {
+     "from": "2026-01-02",
+     "units": 624,
+     "source_url": "https://peraturan.bpk.go.id/Download/287456",
+     "sha256": "975fc86cfa63204ee21810cb7a99918c3a16b5fd47e58dadd9562c5ff3f1dfa0"
+    }
+   ]
+  },
+  {
+   "slug": "uu-ketenagakerjaan",
+   "short": "UU Ketenagakerjaan",
+   "title": "Undang-Undang Nomor 13 Tahun 2003 tentang Ketenagakerjaan",
+   "url": "https://peraturan.bpk.go.id/Details/43013/uu-no-13-tahun-2003",
+   "versions": [
+    {
+     "from": "2003-03-25",
+     "units": 195,
+     "source_url": "https://peraturan.bpk.go.id/Download/31128/UU%20Nomor%2013%20Tahun%202003.pdf",
+     "sha256": "0d3868d19082be34c875a376729998b4d948cac745b1e613d90e6f257d5bf273"
+    }
+   ]
+  },
+  {
+   "slug": "kuhap-1981",
+   "short": "KUHAP 1981",
+   "title": "Undang-Undang Nomor 8 Tahun 1981 tentang Hukum Acara Pidana (KUHAP)",
+   "url": "https://peraturan.bpk.go.id/Details/47041/uu-no-8-tahun-1981",
+   "versions": [
+    {
+     "from": "1981-12-31",
+     "units": 288,
+     "source_url": "https://peraturan.bpk.go.id/Download/35876/UU%20Nomor%208%20Tahun%201981.pdf",
+     "sha256": "b181015ac811f3fcb244bcc844fb0d54f86da8496f894c10ac53e181eb2ae255"
+    },
+    {
+     "from": "2026-01-02",
+     "units": 0,
+     "source_url": "https://web.archive.org/web/20260917015157/https://peraturan.bpk.go.id/Details/337302/uu-no-20-tahun-2025",
+     "sha256": "9bbccfe5dc4e34ae4a0ab149ad8b73e2dad035fe785f936d9c1a0c4ed1e5b831"
+    }
+   ]
+  }
+ ]
+}
