@@ -1,0 +1,17 @@
+{
+ "parts": {
+  "20-uu-ketenagakerjaan.json": {
+   "acts": [
+    "uu-ketenagakerjaan"
+   ],
+   "sha256": "27510ce760490bb1413f0049aed49a480f0bd5319c2e27e2eee122e06f2cce34"
+  },
+  "30-kuhap-1981.json": {
+   "acts": [
+    "kuhap-1981"
+   ],
+   "sha256": "59cde6dcdc2e202ea67a511a381033815eb71f6da5ddf64e92c98fc6c3938c31"
+  }
+ },
+ "schema": 1
+}
