@@ -1,5 +1,7 @@
 # Indonesia: law history in git
 
+Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is Indonesia's national law, which global-law reads at `indonesia/national/acts/`.
+
 A small build of the law of Indonesia as a git history: one file per article, one commit per law on the day it took effect, and the law that made the change as the commit's author. It follows the shared design of [lexifina/global-law](https://github.com/lexifina/global-law), which places it at `id/`.
 
 Language: Indonesian (Bahasa Indonesia), the official language. The text is in Indonesian; this README is in English.
