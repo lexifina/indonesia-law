@@ -24,7 +24,8 @@ The text is in Indonesian, as the official sources print it, their typing slips 
 
 - **[Ask Claude about Indonesian law](https://global-law.lexifina.com/v1/try_claude?country=indonesia)**: opens Claude with a first question ready.
 - **[Ask ChatGPT](https://global-law.lexifina.com/v1/try_chatgpt?country=indonesia)**: the same question in ChatGPT.
-- **[Call the API in your browser](https://global-law.lexifina.com/v1/search_law?query=cuti+tahunan&jurisdictions=indonesia)**: a search of Indonesian law for "cuti tahunan" (annual leave), returned as JSON. See the [documentation here](https://lexifina.com/api/global-law).
+- **[Search Indonesian law on our site](https://lexifina.com/law?country=indonesia&q=cuti+tahunan)**: a search for "cuti tahunan" (annual leave), with each provision's text and its versions, no account needed.
+- **[Developer REST API](https://global-law.lexifina.com/v1/search_law?query=cuti+tahunan&jurisdiction=indonesia)**: the same search as JSON, with no key. See the [documentation here](https://lexifina.com/api/global-law).
 
 Both assistants read the record through the free Global law connector (MCP, `https://global-law.lexifina.com/mcp`); the first time, the chat gives you the link that adds it. Ask in Indonesian or in English.
 
