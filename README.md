@@ -61,6 +61,7 @@ Setiap versi dikreditkan kepada peraturan yang membuatnya (`UU 13/2003`, `UU 20/
 - `tools/verify_uu.py` memeriksa Undang-Undang Ketenagakerjaan dan KUHAP 1981 terhadap lapisan teks PDF BPK, karakter demi karakter, tidak termasuk kepala halaman dan judul.
 - Hasil OCR KUHP dikoreksi secara manual di tempat pemeriksaan terhadap pindaian menemukan kesalahan (Pasal 3, 82, dan 113), dan pemeriksaan sampel atas halaman pindaian 29, 40, dan 200 cocok kata demi kata. Salah ketik lain mungkin masih ada, terutama pada angka dalam rujukan silang.
 - Pembuatan kedua dari korpus yang sama menghasilkan hash yang sama untuk keenam commit riwayat dan 12 tag. Riwayat hanya ditambah: tidak ada merge commit, tidak ada tanggal commit yang mundur, tidak ada yang di masa depan, dan trailer setiap commit dapat diurai.
+- [vulnerabilities/](vulnerabilities/): kemungkinan kesalahan perumusan dalam hukum ini, ditemukan oleh detektor global-law dan diperiksa secara manual. Belum dijalankan.
 
 ## Yang tidak ditampilkan
 
@@ -84,6 +85,10 @@ Lihat [`LICENSE`](LICENSE). Undang-undang tidak dilindungi hak cipta di Indonesi
 Tidak ada model AI yang menulis, menerjemahkan, atau mengoreksi teks hukum; kata-kata KUHP berasal dari OCR (Tesseract), dan skripnya ditulis oleh model AI (lihat [`REPRODUCE.md`](REPRODUCE.md)).
 
 Teks ini adalah terjemahan dari versi bahasa Inggris ([README.en.md](README.en.md)); jika terdapat perbedaan, yang berlaku adalah versi bahasa Inggris.
+
+## Visualisasi
+
+- [visualisations/](visualisations/): grafik yang dibuat dari repositori ini. Belum dibuat.
 
 ## Informasi lebih lanjut
 

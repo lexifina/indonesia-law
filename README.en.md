@@ -61,6 +61,7 @@ Each version is credited to the law that made it (`UU 13/2003`, `UU 20/2025`), a
 - `tools/verify_uu.py` checks the Labour Law and the 1981 KUHAP against the text layers of BPK's PDFs, character for character, page headers and headings aside.
 - The KUHP's OCR was corrected by hand where checks against the scan found errors (Pasal 3, 82 and 113), and spot checks of scan pages 29, 40 and 200 matched word for word. Other slips may remain, especially in the digits of cross-references.
 - A second build from the same corpus gave the same hashes for all 6 history commits and 12 tags. History is append-only: no merge commits, no commit dates going backwards, none in the future, and every commit's trailers parse.
+- [vulnerabilities/](vulnerabilities/README.en.md): possible drafting mistakes in this law, found by global-law's detectors and checked by hand. Not run yet.
 
 ## What it does not show
 
@@ -82,6 +83,10 @@ Each version is credited to the law that made it (`UU 13/2003`, `UU 20/2025`), a
 See [`LICENSE`](LICENSE). Statutes are not protected by copyright in Indonesia (UU 28/2014 on Copyright, Pasal 42 letter b); the Constitutional Court's publication of the Constitution states no reuse licence. The history, commit messages, tables and tools are CC0 1.0.
 
 No AI model wrote, translated or corrected legal text; the KUHP's words come from OCR (Tesseract), and the scripts were written by an AI model (see [`REPRODUCE.md`](REPRODUCE.md)).
+
+## Visualisations
+
+- [visualisations/](visualisations/README.en.md): charts drawn from this repository. Not drawn yet.
 
 ## More
 
